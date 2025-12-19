@@ -4,7 +4,7 @@ title: What Joe Watch
 permalink: /
 ---
 
-# Welcome to What Joe Watch
+# Howdy!
 Just a girl who loves watching **tv shows and movies** and sharing my thoughts on them!
 
 ## Latest Reviews
@@ -12,4 +12,4 @@ Just a girl who loves watching **tv shows and movies** and sharing my thoughts o
 - [{{ post.title }}]({{ post.url }}) — {{ post.date | date: "%B %d, %Y" }}
 {% endfor %}
 
-Enjoy exploring!
+Grab your popcorn and get cozy because it's movie time!
