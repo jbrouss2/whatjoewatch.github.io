@@ -12,4 +12,4 @@ Just a girl who loves watching **tv shows and movies** and sharing my thoughts o
 - [{{ post.title }}]({{ post.url }}) — {{ post.date | date: "%B %d, %Y" }}
 {% endfor %}
 
-Grab your popcorn and get cozy because it's movie time!
+Grab your popcorn and get cozy because it's show time!
