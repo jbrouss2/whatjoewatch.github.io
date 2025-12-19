@@ -1,0 +1,4 @@
+# _config.yml
+theme: minimal-mistakes-jekyll
+plugins:
+    - jekyll-feed
