@@ -1,4 +1,6 @@
 # _config.yml
-theme: minimal-mistakes-jekyll
+remote_theme: pages-theme/minimal@v0.3.0
 plugins:
     - jekyll-feed
+title: What Joe Watch
+description: Just a girl who loves watching tv shows and movies and sharing my thoughts on them!
