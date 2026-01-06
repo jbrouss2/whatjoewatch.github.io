@@ -6,3 +6,10 @@ remote_theme: "mmistakes/minimal-mistakes@4.27.3"
 plugins:
   - jekyll-feed
   - jekyll-include-cache
+
+navigation:
+  - title: Home
+    url: /
+  - title: Blog
+    url: /blog/
+
