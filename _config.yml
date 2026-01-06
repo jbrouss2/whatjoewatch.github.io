@@ -12,4 +12,11 @@ navigation:
     url: /
   - title: Blog
     url: /blog/
+  - title: Movies
+    url: /movies/
+  - title: TV
+    url: /tv/
 
+category_archive:
+  type: liquid
+  path: /categories/
