@@ -17,6 +17,9 @@ navigation:
   - title: TV
     url: /tv/
 
+header:
+  nav: true
+
 category_archive:
   type: liquid
   path: /categories/
