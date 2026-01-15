@@ -5,7 +5,7 @@ permalink: /
 ---
 
 # Howdy!
-Just a girl who loves watching **tv shows and movies** and sharing my thoughts on them!
+Just a girl who loves watching **television shows and movies** and sharing my thoughts on them!
 
 <!-- ## Latest Reviews
 {% for post in site.posts limit:5 %}
