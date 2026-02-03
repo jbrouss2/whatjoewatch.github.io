@@ -5,12 +5,12 @@ categories: [movies]
 tags: []
 ---
 
-*Love them or hate them: Let's talk about 28 RomComs that I recommend!*   
+*Love them or hate them: Let's talk about 2️⃣8️⃣ RomComs that I recommend!*   
 
-What is a RomCom?     
-RomCom is short for Romantic Comedy. According to [Wikipedia](https://en.wikipedia.org/wiki/Romantic_comedy#:~:text=Romantic%20comedy%20(commonly%20shortened%20to,able%20to%20surmount%20all%20obstacles.), "[it is] a sub-genre of comedy and romance fiction, focusing on lighthearted, humorous plot lines centered on romantic ideas, such as how love is able to surmount all obstacles." It is derived from "Ancient Greek comedy, medieval romance, and 18th-century Restoration comedy." A key part of a romcom is the "meet-cute" which is a funny or unexpected initial meeting, i.e., running into someone that sets up the initial tension and eventually leads to the romantic storyline.   
+**What is a RomCom?**     
+RomCom is short for Romantic Comedy. According to [Wikipedia](https://en.wikipedia.org/wiki/Romantic_comedy#:~:text=Romantic%20comedy%20%28commonly%20shortened%20to,able%20to%20surmount%20all%20obstacles.), "[it is] a sub-genre of comedy and romance fiction, focusing on lighthearted, humorous plot lines centered on romantic ideas, such as how love is able to surmount all obstacles." It is derived from "Ancient Greek comedy, medieval romance, and 18th-century Restoration comedy." A key part of a romcom is the "meet-cute" which is a funny or unexpected initial meeting, i.e., running into someone that sets up the initial tension and eventually leads to the romantic storyline.   
 
-I love a good RomCom, so here are 28 that I personally recommend! I have them separated into two sections: classic 💖 and teen 💗. Each RomCom will have a few sentences about why you should watch the movie. It may also have some notable quotes or even a question for you to ponder.      
+I love a good RomCom, so here are 2️⃣8️⃣ that I personally recommend! I have them separated into two sections: classic 💖 and teen 💗. Each RomCom will have a few sentences about why you should watch the movie. It may also have some notable quotes or even a question for you to ponder.      
 
 If I haven't seen the RomCom in a while, I did not include a rating as I felt it would not be accurate. I found where to stream on IMDB, but these may be inaccurate.   
 
@@ -24,7 +24,7 @@ Now, let's fall in love... with fictional men and women💗🍿
 
 ----
 ## Classic RomComs
-### 💖 Sweet Home Alabama###   
+### 💖 Sweet Home Alabama ###   
 - **Movie in 3 Emojis:** 🖋️💍🛩️     
 - **Release Year:** 2002  
 - **MPA Rating:** PG-13  
@@ -35,7 +35,7 @@ Now, let's fall in love... with fictional men and women💗🍿
 
 **👀 Where to Watch:** Rent or Buy on Prime Video
 
-### 💖 Just Like Heaven###   
+### 💖 Just Like Heaven ###   
 - **Movie in 3 Emojis:** 👻🔑💙   
 - **Release Year:** 2005      
 - **MPA Rating:** PG-13    
@@ -47,7 +47,7 @@ Now, let's fall in love... with fictional men and women💗🍿
 
 **👀 Where to Watch:** Peacock, Paramount+, Pluto TV       
 
-### 💖 The Proposal###    
+### 💖 The Proposal ###    
 - **Movie in 3 Emojis:** 💍🍁🛩️   
 - **Release Year:** 2009  
 - **MPA Rating:** PG-13  
@@ -58,7 +58,7 @@ Now, let's fall in love... with fictional men and women💗🍿
 
 **👀 Where to Watch:** Hulu, Tubi   
 
-### 💖 27 Dresses###   
+### 💖 27 Dresses ###   
 - **Movie in 3 Emojis:** 👗📸👰‍♀️   
 - **Release Year:** 2008  
 - **MPA Rating:** PG-13  
@@ -69,7 +69,7 @@ Now, let's fall in love... with fictional men and women💗🍿
 
 **👀 Where to Watch:** Disney+, Hulu   
 
-### 💖 Notting Hill###    
+### 💖 Notting Hill ###    
 - **Movie in 3 Emojis:** 📚💂🫖   
 - **Release Year:** 1999   
 - **MPA Rating:** PG-13  
@@ -80,7 +80,7 @@ Now, let's fall in love... with fictional men and women💗🍿
 
 **👀 Where to Watch:** Prime Video, Peacock   
 
-### 💖 The Other Woman###   
+### 💖 The Other Woman ###   
 - **Movie in 3 Emojis:** 👯‍♀️🐕👒  
 - **Release Year:** 2014  
 - **MPA Rating:** PG-13  
@@ -91,7 +91,7 @@ Now, let's fall in love... with fictional men and women💗🍿
 
 **👀 Where to Watch:** Fawesome
 
-### 💖 Bride Wars###    
+### 💖 Bride Wars ###    
 - **Movie in 3 Emojis:** 👰‍♀️🥊👰‍♀️   
 - **Release Year:** 2009   
 - **MPA Rating:** PG  
@@ -102,7 +102,7 @@ Now, let's fall in love... with fictional men and women💗🍿
 
 **👀 Where to Watch:** Netflix
 
-### 💖 Mamma Mia!###    
+### 💖 Mamma Mia! ###    
 - **Movie in 3 Emojis:** 👨🎶📕
 - **Release Year:** 2008  
 - **MPA Rating:** PG-13   
@@ -113,7 +113,7 @@ Now, let's fall in love... with fictional men and women💗🍿
 
 **👀 Where to Watch:** Starz, Rent or Buy on Prime Video
 
-### 💖 What Happens in Vegas###   
+### 💖 What Happens in Vegas ###   
 - **Movie in 3 Emojis:** 🎰💍🍻   
 - **Release Year:** 2008  
 - **MPA Rating:** PG-13  
@@ -124,7 +124,7 @@ Now, let's fall in love... with fictional men and women💗🍿
 
 **👀 Where to Watch:** Hulu, Peacock   
 
-### 💖 My Big Fat Greek Wedding###    
+### 💖 My Big Fat Greek Wedding ###    
 - **Movie in 3 Emojis:** 🛄🏫💙   
 - **Release Year:** 2002  
 - **MPA Rating:** PG   
@@ -135,7 +135,7 @@ Now, let's fall in love... with fictional men and women💗🍿
 
 **👀 Where to Watch:** HBO Max, Cinemax with Prime Video Channels
 
-### 💖 Maid in Manhattan###    
+### 💖 Maid in Manhattan ###    
 - **Movie in 3 Emojis:** 🧹🏨👗  
 - **Release Year:** 2002  
 - **MPA Rating:** PG-13  
@@ -146,7 +146,7 @@ Now, let's fall in love... with fictional men and women💗🍿
 
 **👀 Where to Watch:** Rent or Buy on Amazon Prime   
 
-### 💖 Monster-in-Law###    
+### 💖 Monster-in-Law ###    
 - **Movie in 3 Emojis:** 💍🥊🥜   
 - **Release Year:** 2005  
 - **MPA Rating:** PG-13  
@@ -157,7 +157,7 @@ Now, let's fall in love... with fictional men and women💗🍿
 
 **👀 Where to Watch:** HBO Max   
 
-### 💖 The Wrong Paris###    
+### 💖 The Wrong Paris ###    
 - **Movie in 3 Emojis:** 🤠👯‍♀️🥐    
 - **Release Year:** 2025   
 - **MPA Rating:** TV-14   
@@ -169,7 +169,7 @@ Now, let's fall in love... with fictional men and women💗🍿
 
 **👀 Where to Watch:** Netflix  
 
-### 💖 Crazy Rich Asians###   
+### 💖 Crazy Rich Asians ###   
 - **Movie in 3 Emojis:** 💰💍🀄
 - **Release Year:** 2018  
 - **MPA Rating:** PG-13   
@@ -182,7 +182,7 @@ Now, let's fall in love... with fictional men and women💗🍿
 **👀 Where to Watch:** Rent or Buy on Prime Video   
 
 ## Teen RomComs
-### 💗 A Cinderella Story###    
+### 💗 A Cinderella Story ###    
 - **Movie in 3 Emojis:** 🛼🎭📱   
 - **Release Year:** 2004   
 - **MPA Rating:** PG   
@@ -194,7 +194,7 @@ Now, let's fall in love... with fictional men and women💗🍿
 
 **👀 Where to Watch:** Prime Video  
 
-### 💗 She's the Man###     
+### 💗 She's the Man ###     
 - **Movie in 3 Emojis:** ⚽🛏️👠   
 - **Release Year:** 2006  
 - **MPA Rating:** PG-13  
@@ -205,7 +205,7 @@ Now, let's fall in love... with fictional men and women💗🍿
 
 **👀 Where to Watch:** Paramount+   
 
-### 💗 Clueless###  
+### 💗 Clueless ###  
 - **Movie in 3 Emojis:** 💛🚗🎾  
 - **Release Year:** 1995    
 - **MPA Rating:** PG-13   
@@ -216,7 +216,7 @@ Now, let's fall in love... with fictional men and women💗🍿
 
 **👀 Where to Watch:** Paramount+   
 
-### 💗 Pretty in Pink###   
+### 💗 Pretty in Pink ###   
 - **Movie in 3 Emojis:** 🦆🩷👗
 - **Release Year:** 1986  
 - **MPA Rating:** PG-13  
@@ -227,7 +227,7 @@ Now, let's fall in love... with fictional men and women💗🍿
 
 **👀 Where to Watch:** Paramount+, AMC+   
 
-### 💗 10 Things I Hate About You###   
+### 💗 10 Things I Hate About You ###   
 - **Movie in 3 Emojis:** 🥐🎤🪩   
 - **Release Year:** 1999  
 - **MPA Rating:** PG-13   
@@ -239,7 +239,7 @@ Now, let's fall in love... with fictional men and women💗🍿
 
 **👀 Where to Watch:** Disney+, Hulu   
 
-### 💗 13 Going on 30###   
+### 💗 13 Going on 30 ###   
 - **Movie in 3 Emojis:** 🏠📰🍬  
 - **Release Year:** 2004  
 - **MPA Rating:** PG-13  
@@ -251,7 +251,7 @@ Now, let's fall in love... with fictional men and women💗🍿
 
 **👀 Where to Watch:** Tubi  
 
-### 💗 Princess Diaries###   
+### 💗 Princess Diaries ###   
 - **Movie in 3 Emojis:** 🐈‍⬛👑🚗  
 - **Release Year:** 2001   
 - **MPA Rating:** G   
@@ -262,7 +262,7 @@ Now, let's fall in love... with fictional men and women💗🍿
 
 **👀 Where to Watch:** Disney+  
 
-### 💗 Sydney White###   
+### 💗 Sydney White ###   
 - **Movie in 3 Emojis:** 🤓💻🏫   
 - **Release Year:** 2007   
 - **MPA Rating:** PG-13   
@@ -273,7 +273,7 @@ Now, let's fall in love... with fictional men and women💗🍿
 
 **👀 Where to Watch:** Pluto TV   
 
-### 💗 She's All That###   
+### 💗 She's All That ###   
 - **Movie in 3 Emojis:** 🎨💄💃   
 - **Release Year:** 1999  
 - **MPA Rating:** PG-13  
@@ -284,7 +284,7 @@ Now, let's fall in love... with fictional men and women💗🍿
 
 **👀 Where to Watch:** Paramount+, MGM+   
 
-### 💗 17 Again###    
+### 💗 17 Again ###    
 - **Movie in 3 Emojis:** 🌉🏀🏫
 - **Release Year:** 2009  
 - **MPA Rating:** PG-13  
@@ -295,7 +295,7 @@ Now, let's fall in love... with fictional men and women💗🍿
 
 **👀 Where to Watch:** Rent or Buy on Prime Video  
 
-### 💗 The Prince and Me###   
+### 💗 The Prince and Me ###   
 - **Movie in 3 Emojis:** 👑🏍️📚   
 - **Release Year:** 2004  
 - **MPA Rating:** PG  
@@ -306,7 +306,7 @@ Now, let's fall in love... with fictional men and women💗🍿
 
 **👀 Where to Watch:** Paramount+   
 
-### 💗 The Duff###   
+### 💗 The Duff ###   
 - **Movie in 3 Emojis:** 📝🏈🍥  
 - **Release Year:** 2015   
 - **MPA Rating:** PG-13  
@@ -317,7 +317,7 @@ Now, let's fall in love... with fictional men and women💗🍿
 
 **👀 Where to Watch:** MovieSphere, Fawesome, Roku Channel  
 
-### 💗 The Kissing Booth###
+### 💗 The Kissing Booth ###
 - **Movie in 3 Emojis:** 👙😘🎡   
 - **Release Year:** 2018   
 - **MPA Rating:** TV-14  
@@ -328,7 +328,7 @@ Now, let's fall in love... with fictional men and women💗🍿
 
 **👀 Where to Watch:** Netflix  
 
-### 💗 John Tucker Must Die###   
+### 💗 John Tucker Must Die ###   
 - **Movie in 3 Emojis:** 🏀😈💔  
 - **Release Year:** 2006  
 - **MPA Rating:** PG-13  
@@ -341,10 +341,10 @@ Now, let's fall in love... with fictional men and women💗🍿
 
 ----
 
-Hope these RomComs bring you lots of laughter and joy (and maybe even a few tears)! 💘    
+💘 Hope these RomComs bring you lots of laughter and joy (and maybe even a few tears)! 💘    
 
-Watch them alone, with your bestie, with your significant other, with your pet, with whoever! 💞      
+💞 Watch them alone, with your bestie, with your significant other, with your pet, with whoever! 💞      
 
-If there are any you recommend or think I missed, let me know! 💝       
+💝 If there are any you recommend or think I missed, let me know! 💝       
 
 Happy February and happy watching! 🫶🍿    
