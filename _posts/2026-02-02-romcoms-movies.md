@@ -142,7 +142,7 @@ Now, let's fall in love... with fictional men and women💗🍿
 - **Duration:** 105 Minutes  
 - **IMDB Description:** A Senatorial candidate falls for a hotel maid, thinking she is a socialite, when he sees her trying on a wealthy woman's dress. [See Full IMDB Page](https://www.imdb.com/title/tt0252076/?ref_=nv_sr_srsg_0_tt_8_nm_0_in_0_q_maid%2520in%2520m)   
 - **IMDB Rating:** 5.4/10  
-- **Why Watch:** Ever want to pretend you are something you are not? This is exactly what JLO does in this movie, and it works out for her so maybe it'll work out for you. 🫶  
+- **Why Watch:** Ever want to pretend you are something you are not? This is exactly what JLo does in this movie, and it works out for her so maybe it'll work out for you. 🫶  
 
 **👀 Where to Watch:** Rent or Buy on Amazon Prime   
 
@@ -153,7 +153,7 @@ Now, let's fall in love... with fictional men and women💗🍿
 - **Duration:** 101 Minutes  
 - **IMDB Description:** Charlotte's love life is reduced to an endless string of disastrous blind dates--until she meets the perfect man, Kevin. Unfortunately, his merciless mother will do anything to destroy their relationship. [See Full IMDB Page](https://www.imdb.com/title/tt0369735/?ref_=nv_sr_srsg_0_tt_8_nm_0_in_0_q_monster%2520in)   
 - **IMDB Rating:** 5.6/10  
-- **Why Watch:** This helps you find the signs of a soon-to-be horrible monster in law. Run away while you can!! 🏃‍♀️‍➡️   
+- **Why Watch:** This helps you find the signs of a soon-to-be horrible mother in law. Run away while you can!! 🏃‍♀️‍➡️   
 
 **👀 Where to Watch:** HBO Max   
 
@@ -190,7 +190,7 @@ Now, let's fall in love... with fictional men and women💗🍿
 - **IMDB Description:** Routinely exploited by her wicked stepmother, the downtrodden Samantha Montgomery is excited about the prospect of meeting her Internet beau at the school's Halloween dance. [See Full IMDB Page](https://www.imdb.com/title/tt0356470/?ref_=nv_sr_srsg_0_tt_8_nm_0_in_0_q_a%2520cinder)   
 - **IMDB Rating:** 6.0/10  
 - **My Rating:** 4 ⭐   
-- **Why Watch:** *"Waiting for you is like waiting for rain in this drought. Useless and dissappointing."* Jennifer Coolidge is true comedy gold. *"LOL. Laugh, out, loud."*   
+- **Why Watch:** *"Waiting for you is like waiting for rain in this drought. Useless and dissappointing."* Jennifer Coolidge is just as funny as ever. *"LOL. Laugh out loud."*   
 
 **👀 Where to Watch:** Prime Video  
 
@@ -201,7 +201,7 @@ Now, let's fall in love... with fictional men and women💗🍿
 - **Duration:** 105 Minutes  
 - **IMDB Description:** When her brother decides to ditch for a couple weeks, Viola heads over to his elite boarding school, disguised as him, and proceeds to fall for his school's star soccer player, and soon learns she's not the only one with romantic troubles. [See Full IMDB Page](https://www.imdb.com/title/tt0454945/?ref_=nv_sr_srsg_0_tt_8_nm_0_in_0_q_she%27s%2520the%2520ma)   
 - **IMDB Rating:** 6.4/10  
-- **Why Watch:** *"When I close my eyes, I see you for what you truly are which is UGLAY."* *"What's my favorite kind of cheese? Oh mine's gouda. 🧀"* Amanda Bynes and Channing Tatum are so great in this movie, and there are so many quotable scenes.   
+- **Why Watch:** *"When I close my eyes, I see you for what you truly are which is UGLAY."* Amanda Bynes and Channing Tatum are so great in this movie, and there are so many quotable scenes. *"What's my favorite kind of cheese? Oh mine's gouda. 🧀"*      
 
 **👀 Where to Watch:** Paramount+   
 
