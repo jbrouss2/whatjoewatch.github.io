@@ -258,7 +258,7 @@ Now, let's fall in love... with fictional men and women💗🍿
 - **Duration:** 115 Minutes  
 - **IMDB Description:** Mia Thermopolis has just found out that she is the heir apparent to the throne of Genovia. With her friends Lilly and Michael Moscovitz in tow, she tries to navigate through the rest of her fifteenth year. [See Full IMDB Page](https://www.imdb.com/title/tt0247638/?ref_=nv_sr_srsg_0_tt_5_nm_3_in_0_q_princess%2520di)   
 - **IMDB Rating:** 6.4/10  
-- **Why Watch:** *"Shut up."* Wish you were secretly royalty? Want to transform into a new you via makeover?    
+- **Why Watch:** *"Shut up."* Wish you were secretly royalty? Want to transform into a new you via makeover? There is a sequel which is just as good as the first one IMO!       
 
 **👀 Where to Watch:** Disney+  
 
