@@ -16,6 +16,8 @@ main:
     url: /movies/
   - title: TV
     url: /tv/
+  - title: Weekend Wrapup
+    url: /ww/
 
 header:
   nav: true
