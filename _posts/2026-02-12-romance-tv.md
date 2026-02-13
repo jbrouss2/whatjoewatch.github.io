@@ -12,7 +12,7 @@ Are you looking for the perfect romance show to watch this month? Here is a list
 ------
 # Fictional Shows   
 ## Ones I've Seen ✨   
-### 💞 Sweet Magnolias      
+### 💞 Sweet Magnolias 🌼      
 **Genres:** Feel-good Romance, Drama     
 **Show Description:** Three South Carolina women, best friends since high school, shepherd one another through the complexities of romance, career, and family. [See full IMDB page](https://www.imdb.com/title/tt9077540/?ref_=nv_sr_srsg_0_tt_5_nm_3_in_0_q_sweet%2520ma)     
 **Number of Seasons:** 4 (5 is coming June 11)          
@@ -27,7 +27,7 @@ This is a perfect watch for you and your girl friend or even solo! It has drama,
 
 **👀 Where to Watch:** Netflix        
 
-### 💌 My Life with the Walter Boys 
+### 💌 My Life with the Walter Boys 👧👦👦     
 **Genres:** Coming-of-Age, Teen Drama  
 **Show Description:** Jackie Howard's life is disrupted by a freak accident, she is ripped from her home and has to start over on a ranch in Colorado, with her guardian and a family of nine boys and one girl. [See full IMDB page](https://www.imdb.com/title/tt8323628/?ref_=nv_sr_srsg_3_tt_8_nm_0_in_0_q_my%2520life)    
 **Number of Seasons:** 2        
@@ -43,7 +43,7 @@ This is another girl's night watch or watch with an older teen!
 **👀 Where to Watch:** Netflix     
 
 ### Ones on my List to Watch 📃
-### 💘 Virgin River   
+### 💘 Virgin River 🚣  
 **Genre:** Feel-good Romance, Medical           
 **Show Description:** Seeking a fresh start, nurse practitioner Melinda Monroe moves from Los Angeles to a remote Northern California town and is surprised by what and whom she finds there. [See full IMDB page](https://www.imdb.com/title/tt9077530/?ref_=nv_sr_srsg_0_tt_6_nm_2_in_0_q_virgin)    
 **Number of Seasons:** 6 (7 is coming March 12)    
@@ -56,7 +56,7 @@ This is another girl's night watch or watch with an older teen!
 
 **👀 Where to Watch:** Netflix   
 
-### 💗 Sullivan's Crossing    
+### 💗 Sullivan's Crossing 🩺        
 **Genre:** Medical Drama    
 **Show Description:** Neurosurgeon Maggie Sullivan reconnects with her small-town past after a scandal causes her to leave her professional and personal life behind in the city. [See full IMDB page](https://www.imdb.com/title/tt21064598/?ref_=nv_sr_srsg_0_tt_2_nm_6_in_0_q_sull)    
 **Number of Seasons:** 3         
@@ -131,7 +131,7 @@ This is another girl's night watch or watch with an older teen!
 **👀 Where to Watch:**  Netflix     
 
 ## Messy Romances 🧽    
-### 💕 Forbidden Love   
+### 💕 Forbidden Love 🚫     
 **Show Description:** Couples hopelessly in love face one final hurdle in their relationship--religion. To stay together, someone must choose to change their faith, but will the sacrifice strengthen their relationship or tear them apart? [See full IMDB page](https://www.imdb.com/title/tt32598793/?ref_=fn_t_12)    
 **Number of Seasons:** 1        
 **Number of Episodes:** 8         
@@ -144,7 +144,7 @@ This is another girl's night watch or watch with an older teen!
 
 **👀 Where to Watch:** HBO Max    
 
-### 💖 Prison Brides   
+### 💖 Prison Brides 🔗👰‍♀️      
 **Show Description:** Follows seven women from around the world who believe they have found their soulmates in the most unexpected of places, American prisons. [See full IMDB page](https://www.imdb.com/title/tt30981542/?ref_=nv_sr_srsg_0_tt_4_nm_4_in_0_q_prison%2520brides)    
 **Number of Seasons:** 1        
 **Number of Episodes:**  10       
@@ -157,7 +157,7 @@ This is another girl's night watch or watch with an older teen!
 
 **👀 Where to Watch:** Hulu, Tubi, Roku Channel, Lifetime (again idk how this works)       
 
-### 💌 Love After Lockup 
+### 💌 Love After Lockup ❤️🔗   
 **Show Description:** After being released from prison, the couple finally meet their fiancé. Will their love survive after prison when the bars are gone? Is it true love or just a sham? [See full IMDB page](https://www.imdb.com/title/tt7721986/?ref_=fn_t_1)    
 **Number of Seasons:/Episods**  They have a weird season numbering so I have no clue how many seasons or episodes.           
 **Episodes Need to Be Watched in Order:** ✅ (Per season, some couples and/or indviduals go on to other seasons or the spinoff)          
@@ -170,7 +170,7 @@ This is another girl's night watch or watch with an older teen!
 
 **👀 Where to Watch:** Peacock, Prime Video (Has some available but not all), AMC+        
 
-### 💕 90 Day Fiancé 
+### 💕 90 Day Fiancé 🛂   
 **Show Description:** Using a unique 90 Day Fiance visa, overseas fiances will travel to the US to live with their partners for the first time. Each couple will have just 90 days to decide to get married or send their international mate home. [See full IMDB page](https://www.imdb.com/title/tt3469050/?ref_=nv_sr_srsg_3_tt_8_nm_0_in_0_q_90%2520day%2520)    
 **Number of Seasons:** 11       
 **Number of Episodes:**  164 according to IMDB           
@@ -184,7 +184,7 @@ This is another girl's night watch or watch with an older teen!
 
 **👀 Where to Watch:** HBO Max (Seasons 3 & 4 are missing)      
 
-### 💙 My Big Fat American Gypsy Wedding
+### 💙 My Big Fat American Gypsy Wedding 👰‍♀️🤵‍♂️  
 **Show Description:** My Big Fat American Gypsy Wedding takes you inside a world full of traditions and celebrations. From Birthdays, to Weddings, to Holy Communions, no expense is spared and it's all about the bling. [See full IMDB page](https://www.imdb.com/title/tt2245937/?ref_=nv_sr_srsg_2_tt_5_nm_3_in_0_q_gypsy%2520we)    
 **Number of Seasons:** 6        
 **Number of Episodes:** 50            
@@ -197,7 +197,7 @@ This is another girl's night watch or watch with an older teen!
 
 **👀 Where to Watch:** HBO Max (Season 5 is missing), Plex, Hulu with Live TV     
 
-### 💚 Catfish: The TV Show
+### 💚 Catfish: The TV Show 😺🐟   
 **Show Description:** Nev Schulman and Max Joseph help people who have fallen in love online test the authenticity of their lovers' identities. [See full IMDB page](https://www.imdb.com/title/tt2498968/?ref_=nv_sr_srsg_6_tt_7_nm_1_in_0_q_catfish)    
 **Number of Seasons:** 9        
 **Number of Episodes:** 274 (according to IMDB)        
@@ -211,7 +211,7 @@ This is another girl's night watch or watch with an older teen!
 **👀 Where to Watch:** Hulu      
 
 ## Ones to Die For 🔪          
-### 💔 Who the (BLEEP) Did I Marry?     
+### 💔 Who the (BLEEP) Did I Marry? 👰‍♀️❓🤵‍♂️🤔       
 **Show Description:** A biography about real people who marry their "soulmates", until they learn that the person they thought they married, isn't who they say they are. [See full IMDB page](https://www.imdb.com/title/tt1705096/?ref_=nv_sr_srsg_0_tt_8_nm_0_in_0_q_who%2520the%2520bleep)    
 **Number of Seasons:** 8 or 9 (There is conflicting info online)        
 **Number of Episodes:** 101 or 123 or 128 (There is conflicting info online)         
@@ -224,7 +224,7 @@ This is another girl's night watch or watch with an older teen!
 
 **👀 Where to Watch:** HBO Max (Seasons 1 and 9 not available), Roku Channel, Plex (Not sure how this service works), Hulu with Live TV
 
-### 💔 Snapped: Killer Couples
+### 💔 Snapped: Killer Couples 👩👨   
 **Show Description:** Oxygen expands its true crime original programming with the new series "Snapped: Killer Couples," featuring couples whose passion drives them to commit terrible criminal acts. [See full IMDB page](https://www.imdb.com/title/tt2723810/?ref_=nv_sr_srsg_3_tt_8_nm_0_in_0_q_snapped)    
 **Number of Seasons:** 17      
 **Number of Episodes:** 180       
