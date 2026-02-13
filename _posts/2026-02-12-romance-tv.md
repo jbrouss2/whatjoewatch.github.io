@@ -1,6 +1,6 @@
 ---
 layout: single
-title: "Be My Valentine & Watch These Romance & Romance-Adjacent Shows 💗"
+title: "Be My Valentine and Watch These Romance and Romance-Adjacent Shows 💗📺"
 categories: [tv]
 tags: []
 ---
