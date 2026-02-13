@@ -1,6 +1,6 @@
 ---
 layout: single
-title: "Sitcoms: Because Everyone Needs a Laugh Every Now and Then"
+title: "Sitcoms: Because Everyone Needs a Laugh Every Now and Then 😄"
 categories: [tv]
 tags: []
 ---
