@@ -1,6 +1,6 @@
 ---
 layout: single
-title: "💗Be My Valentine💗 & Watch These Romance & Romance-Adjacent Shows"
+title: "Be My Valentine & Watch These Romance & Romance-Adjacent Shows 💗"
 categories: [tv]
 tags: []
 ---
@@ -11,7 +11,7 @@ Are you looking for the perfect romance show to watch this month? Here is a list
 
 ------
 # Fictional Shows   
-## Ones I've Seen    
+## Ones I've Seen ✨   
 ### 💞 Sweet Magnolias      
 **Genres:** Feel-good Romance, Drama     
 **Show Description:** Three South Carolina women, best friends since high school, shepherd one another through the complexities of romance, career, and family. [See full IMDB page](https://www.imdb.com/title/tt9077540/?ref_=nv_sr_srsg_0_tt_5_nm_3_in_0_q_sweet%2520ma)     
@@ -70,9 +70,9 @@ This is another girl's night watch or watch with an older teen!
 **👀 Where to Watch:** Netflix, The CW          
 
 # Reality Shows
-*Note* Some of these may say *episode* duration instead of *total* duration just because there are a ton of seasons, and I am lazy. ✨    
+*Note*: Some of these may say *episode* duration instead of *total* duration just because there are a ton of seasons, and I am lazy. ✨    
 
-## Wholesome Reality    
+## Wholesome Reality 🫶   
 ### 💞 Four Weddings 👰🏻‍♀️👰🏼‍♀️👰🏽‍♀️👰🏾‍♀️     
 **Show Description:** Four brides-to-be attend and judge one another's weddings, rating various aspects. The highest-rated nuptials win the couple an exotic honeymoon trip. [See full IMDB page](https://www.imdb.com/title/tt1559672/?ref_=fn_t_3)    
 **Number of Seasons:** 10        
@@ -103,7 +103,7 @@ This is another girl's night watch or watch with an older teen!
 
 **👀 Where to Watch:** HBO Max, Hulu (Seasons 12-13, 22), Pluto TV (Say Yes to the Dress Channel)   
 
-## Is this real love?     
+## Is this real love? 🤨      
 ### 💗 Married at First Sight 💍     
 **Show Description:** A reality show that follows singles yearning for a life-long partnership as they agree to a provocative proposal: getting legally married to a stranger the moment they first meet. [See full IMDB page](https://www.imdb.com/title/tt3868860/?ref_=nv_sr_srsg_1_tt_8_nm_0_in_0_q_married%2520at%2520first%2520sight)    
 **Number of Seasons:** 19        
@@ -130,7 +130,7 @@ This is another girl's night watch or watch with an older teen!
 
 **👀 Where to Watch:**  Netflix     
 
-## Messy Romances     
+## Messy Romances 🧽    
 ### 💕 Forbidden Love   
 **Show Description:** Couples hopelessly in love face one final hurdle in their relationship--religion. To stay together, someone must choose to change their faith, but will the sacrifice strengthen their relationship or tear them apart? [See full IMDB page](https://www.imdb.com/title/tt32598793/?ref_=fn_t_12)    
 **Number of Seasons:** 1        
@@ -210,7 +210,7 @@ This is another girl's night watch or watch with an older teen!
 
 **👀 Where to Watch:** Hulu      
 
-## Ones to Die For          
+## Ones to Die For 🔪          
 ### 💔 Who the (BLEEP) Did I Marry?     
 **Show Description:** A biography about real people who marry their "soulmates", until they learn that the person they thought they married, isn't who they say they are. [See full IMDB page](https://www.imdb.com/title/tt1705096/?ref_=nv_sr_srsg_0_tt_8_nm_0_in_0_q_who%2520the%2520bleep)    
 **Number of Seasons:** 8 or 9 (There is conflicting info online)        
