@@ -30,7 +30,7 @@ The short answer is yes! It's a really good film that is definitely worth the wa
 - Lily ✨ - Tracie Thomas - Andy's Best-friend, works at an art gallery      
 - Peter - Patrick Brammall - Contractor and Andy's love interest         
 - Sasha Barnes - Lucy Liu - Ex-wife of Benji, lives in a beautiful villa & is rich        
-- Irv Ravitz - - Owner of Elias-Clarke which is the Runway parent company      
+- Irv Ravitz - Tibor Feldman - Owner of Elias-Clarke which is the Runway parent company      
 - Jay Ravitz - B.J. Novak - Son of Irv Ravitz      
 
 **My Thoughts 🧠:**        
