@@ -38,12 +38,11 @@ There were a plethora of huge names in the fashion industry and the Hollywood in
 
 No one in the film aged! Anne Hathaway, Meryl Streep, Stanley Tucci, and Emily Blunt all look fabulous. Of course some of them have had some treatments and work done, but I still think that they all look so good.      
 
-In this film Andy Sacks
 
-*This section might contain small spoilers for the film. Scroll to the next italizied text.*   
+🚨🚨*This section might contain small spoilers for the film. Scroll to the next italizied text.*🚨🚨   
          
           
-             
+                   
             
 In terms of the plot, I thought it was very good. It felt very similar to the first film, but it was more modernized and felt current. Andy’s lay-off and new job are similar to that of current times that people are facing. We also see more of Miranda and her more “human” and emotional side which I do enjoy. I loved seeing Nigel be able to have his moment.      
 
@@ -56,7 +55,7 @@ We do see Miranda having to hang up her own coat which was great. Also her vario
             
                  
                 
-*No more spoilers here!*          
+🚨🚨*No more spoilers here!*🚨🚨          
 
 Overall I enjoyed the movie, and I’d definitely give it another watch. It was nostalgic and a wonderfully well-done ode to the original.         
 
