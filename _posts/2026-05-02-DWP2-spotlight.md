@@ -41,7 +41,7 @@ There were a plethora of huge names in the fashion industry and the Hollywood in
 No one in the film aged! Anne Hathaway, Meryl Streep, Stanley Tucci, and Emily Blunt all look fabulous. Of course some of them have had some treatments and work done, but I still think that they all look so good.      
 
 
-🚨🚨*This section might contain small spoilers for the film. Scroll to the next italizied text.*🚨🚨   
+🚨*This section might contain small spoilers for the film. Scroll to the next italizied text.*🚨   
          
           
                    
@@ -57,7 +57,7 @@ We do see Miranda having to hang up her own coat which was great. Also her vario
             
                  
                 
-🚨🚨*No more spoilers here!*🚨🚨          
+🚨*No more spoilers here!*🚨          
 
 Overall I enjoyed the movie, and I’d definitely give it another watch. It was nostalgic and a wonderfully well-done ode to the original.         
 
