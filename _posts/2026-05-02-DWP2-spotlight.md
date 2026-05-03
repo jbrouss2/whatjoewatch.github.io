@@ -24,12 +24,12 @@ The short answer is yes! It's a really good film that is definitely worth the wa
 - Miranda Priestly ✨ - Meryl Streep - Editor-in-Chief at Runway                
 - Nigel Kipling ✨ - Stanley Tucci - Creative Director at Runway, close confidant of Miranda Priestly      
 - Emily Charlton ✨ - Emily Blunt - Fashion executive at Dior        
-- Benji Barnes - Justin Theroux -  
+- Benji Barnes - Justin Theroux - Tech Bro  
 - Amari - Simone Ashley - "New Emily", Miranda's #1 Assitant           
 - Staurt - Kenneth Branagh - Miranda Priestly's husband, in a string quartet      
 - Lily ✨ - Tracie Thomas - Andy's Best-friend, works at an art gallery      
 - Peter - Patrick Brammall - Contractor and Andy's love interest         
-- Sasha Barnes - Lucy Liu - Ex-wife of Benji, lives in a beautiful villa & is rich        
+- Sasha Barnes - Lucy Liu - Ex-wife of Benji, lives in a beautiful villa, philanthropist        
 - Irv Ravitz - Tibor Feldman - Owner of Elias-Clarke which is the Runway parent company      
 - Jay Ravitz - B.J. Novak - Son of Irv Ravitz      
 
