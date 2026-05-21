@@ -62,6 +62,7 @@ Matthew Lillard (Stu) and Skeet Ulrich (Billy) being the killers was a phenomena
 1. 🔪 Staurt "Stu" Macher            
 1. 🔪 William "Billy" Loomis            
 
+🎥🎥                  
 
 # Scream 2     
 **🗓️ Release Year:** 1997      
@@ -96,6 +97,8 @@ Gale Weathers and Dewey are back in action. They are still flirting which I will
 1. Derek Feldman        
 1. 🔪 Nancy Loomis        
 1. 🔪 Mickey Altieri            
+
+🎥🎥         
 
 # Scream 3     
 **🗓️ Release Year:** 2000      
@@ -140,6 +143,7 @@ Dewey and Gale get engaged! I thought his proposal was super cute.
 1. John Milton           
 1. 🔪 Roman Bridger          
 
+🎥🎥         
 
 # Scream 4    
 **🗓️ Release Year:** 2011      
@@ -172,6 +176,8 @@ Dewey and Gale get engaged! I thought his proposal was super cute.
 1. 🔪 Charlie Walker       
 1. 🔪 Jill Roberts        
 
+🎥🎥         
+
 # Scream V       
 **🗓️ Release Year:** 2022       
 **🍿 MPA Rating:** R     
@@ -198,6 +204,8 @@ This film saw the death of one legacy character as well as one character introdu
 1. Liv McKenzie    
 1. 🔪 Richie Kirsch
 1. 🔪 Amber Freeman    
+
+🎥🎥         
 
 # Scream VI        
 **🗓️ Release Year:** 2023       
@@ -231,6 +239,7 @@ The main issue between Tara and Sam got old fast. Ghostface would never shoot so
 1. 🔪 Detective Wayne Kirsch/Wayne Bailey     
 1. 🔪 Ethan Kirsch/Ethan Landry     
 
+🎥🎥         
 
 # Scream 7    
 **🗓️ Release Year:** 2026      
@@ -266,7 +275,7 @@ I am left more questions to ponder about the choices the characters make.
 
 **🥤 IMDB Rating:** 6.0/10   
 **✨ My Rating:** 3.5 ⭐         
-  
+
 **💭 Additional Thoughts:** I absolutely love the song "The Kill" by STELLA LEFTY that is featured in the movie. It is so addicting and good. Highly recommend checking it out if you haven't heard it. This is a minor complaint about casting but Joel McHale as Mark Evans was eh. The reason they couldn't get Patrick Dempsey back as Mark Kincaid was because he was busy filming something else. Also the writers said technically they never said which Mark Sidney married (because we see her married and with a kid in Scream V). They did give Mark Evans a similar job to Mark Kincaid. Maybe they thought they could trick people? IDK what the writers' plan was.          
 
 Lucas' death in the bar is so brutual holy shit. I absolutely hated watching him being picked up and put on the beer tap. Then to top it off beer came out of his mouth 🤢. Also literally his mom killer her own son like what???      
