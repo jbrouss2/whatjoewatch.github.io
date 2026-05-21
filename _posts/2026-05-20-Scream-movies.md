@@ -301,7 +301,7 @@ The above is neat because it has gifs of all the scenes.
 [List of death in Scream on Horror Film Wiki](https://horror.fandom.com/wiki/List_of_death_in_Scream#google_vignette)            
 
 ----
-Until next time, 
+Until next time,             
 ![Ghostface Gif](https://media.giphy.com/media/v1.Y2lkPWVjZjA1ZTQ3cHBpZjNkZ2JsOGhuOHRtY3hxM3FndHhiNHF3dG5mNW5wejFsazFhaSZlcD12MV9naWZzX3NlYXJjaCZjdD1n/rlhzK7QOnkDhsm2uCX/giphy.gif)        
 
 I want to start using more gifs, and I would love to hear the thoughts on those too!   
