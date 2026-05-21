@@ -18,7 +18,7 @@ The Scream franchise is a staple in slasher films. It has been parodied by the S
 🚨**Spoilers ahead**🚨
 ----                  
 
-# Scream      
+# 🎥 Scream 🎥     
 **🗓️ Release Year:** 1996       
 **🍿 MPA Rating:** R     
 **⌚ Duration:** 111 Minutes    
@@ -62,9 +62,7 @@ Matthew Lillard (Stu) and Skeet Ulrich (Billy) being the killers was a phenomena
 1. 🔪 Staurt "Stu" Macher            
 1. 🔪 William "Billy" Loomis            
 
-🎥🎥                  
-
-# Scream 2     
+# 🎥 Scream 2 🎥     
 **🗓️ Release Year:** 1997      
 **🍿 MPA Rating:** R     
 **⌚ Duration:** 120 Minutes 
@@ -97,10 +95,9 @@ Gale Weathers and Dewey are back in action. They are still flirting which I will
 1. Derek Feldman        
 1. 🔪 Nancy Loomis        
 1. 🔪 Mickey Altieri            
+         
 
-🎥🎥         
-
-# Scream 3     
+# 🎥 Scream 3 🎥    
 **🗓️ Release Year:** 2000      
 **🍿 MPA Rating:** R     
 **⌚ Duration:** 116 Minutes 
@@ -143,9 +140,7 @@ Dewey and Gale get engaged! I thought his proposal was super cute.
 1. John Milton           
 1. 🔪 Roman Bridger          
 
-🎥🎥         
-
-# Scream 4    
+# 🎥 Scream 4 🎥   
 **🗓️ Release Year:** 2011      
 **🍿 MPA Rating:** R     
 **⌚ Duration:** 111 Minutes  
@@ -176,9 +171,8 @@ Dewey and Gale get engaged! I thought his proposal was super cute.
 1. 🔪 Charlie Walker       
 1. 🔪 Jill Roberts        
 
-🎥🎥         
 
-# Scream V       
+# 🎥 Scream V 🎥     
 **🗓️ Release Year:** 2022       
 **🍿 MPA Rating:** R     
 **⌚ Duration:** 114 Minutes  
@@ -203,11 +197,9 @@ This film saw the death of one legacy character as well as one character introdu
 1. Dewey Riley 😭       
 1. Liv McKenzie    
 1. 🔪 Richie Kirsch
-1. 🔪 Amber Freeman    
+1. 🔪 Amber Freeman             
 
-🎥🎥         
-
-# Scream VI        
+# 🎥 Scream VI 🎥             
 **🗓️ Release Year:** 2023       
 **🍿 MPA Rating:** R     
 **⌚ Duration:** 122 Minutes   
@@ -300,14 +292,14 @@ Check out these super cool wikis I found to get information about kill count, vi
 The above is neat because it has gifs of all the scenes.     
 [List of death in Scream on Horror Film Wiki](https://horror.fandom.com/wiki/List_of_death_in_Scream#google_vignette)            
 
-----
-Until next time,             
-![Ghostface Gif](https://media.giphy.com/media/v1.Y2lkPWVjZjA1ZTQ3cHBpZjNkZ2JsOGhuOHRtY3hxM3FndHhiNHF3dG5mNW5wejFsazFhaSZlcD12MV9naWZzX3NlYXJjaCZjdD1n/rlhzK7QOnkDhsm2uCX/giphy.gif)        
-
+----       
 I want to start using more gifs, and I would love to hear the thoughts on those too!   
 
 Thanks for reading, and I'd love to hear your thoughts about the franchise!    
 
 Happy watching! 🍿   
+
+Until next time,             
+![Ghostface Gif](https://media.giphy.com/media/v1.Y2lkPWVjZjA1ZTQ3cHBpZjNkZ2JsOGhuOHRtY3hxM3FndHhiNHF3dG5mNW5wejFsazFhaSZlcD12MV9naWZzX3NlYXJjaCZjdD1n/rlhzK7QOnkDhsm2uCX/giphy.gif)       
 
 XOXO 💗 Joe   
