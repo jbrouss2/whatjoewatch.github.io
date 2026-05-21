@@ -1,6 +1,6 @@
 ---
 layout: single
-title: "Scream: The Slasher Franchise Strikes Again"
+title: "Scream: The Slasher Franchise Strikes Again 🔪"
 categories: [movies]
 tags: []
 ---
@@ -22,7 +22,9 @@ The Scream franchise is a staple in slasher films. It has been parodied by the S
 **🗓️ Release Year:** 1996       
 **🍿 MPA Rating:** R     
 **⌚ Duration:** 111 Minutes    
-**📝 IMDB Description:** In the small town of Woodsboro, California, a masked killer known as Ghostface begins murdering high school students, and a group of friends must use their knowledge of horror movies to unmask the killer. [See Full IMDB Page](https://www.imdb.com/title/tt0117571/?ref_=fn_t_2)      
+                   
+**📝 IMDB Description:** In the small town of Woodsboro, California, a masked killer known as Ghostface begins murdering high school students, and a group of friends must use their knowledge of horror movies to unmask the killer. [See Full IMDB Page](https://www.imdb.com/title/tt0117571/?ref_=fn_t_2)  
+                       
 **🎬 Letterboxd Review:** This is the best scream movie, and I stand by that.      
 
 “What’s your favorite scary movie?”         
@@ -42,10 +44,13 @@ Scream Rules
     1. You will not survive if you ask “Who’s there?”                      
     2. You will not survive if you go out to investigate a strange noise.           
 
-Matthew Lillard (Stu) and Skeet Ulrich (Billy) being the killers was a phenomenal choice. They play the part to a T. On rewatch I noticed more stuff where it hints to them being the killers, and I also see quite a few shared looks between the two. I think the movie does a good job of setting them up to be the killers with subtle hints, but it also doesn’t give it away.      
+Matthew Lillard (Stu) and Skeet Ulrich (Billy) being the killers was a phenomenal choice. They play the part to a T. On rewatch I noticed more stuff where it hints to them being the killers, and I also see quite a few shared looks between the two. I think the movie does a good job of setting them up to be the killers with subtle hints, but it also doesn’t give it away.    
+          
 **🥤 IMDB Rating:** 7.4/10      
 **✨ My Rating:** 5 ⭐      
+                
 **💭 Additional Thoughts:** This film is one of my favorites. I also love how people were pressed when the film originally came out because the poster is Drew Barrymore, yet she dies within the first 10 minutes of the film. Iconic. I also think Neve Campbell does a fantastic job at playing Sidney Prescott. Her character isn't over the top and ridiculous like some of the other franchises. Does she make a few stupid choices? Yes, but she does make some pretty smart choices that other franchise female leads would not do.             
+                  
 **🩸 Kill Count:** 7 (8 if count Maureen Prescott)     
 **👤 Victims & 🔪 Killers:**                
 1. Maureen Prescott (Not seen in the film)           
@@ -61,16 +66,20 @@ Matthew Lillard (Stu) and Skeet Ulrich (Billy) being the killers was a phenomena
 # Scream 2     
 **🗓️ Release Year:** 1997      
 **🍿 MPA Rating:** R     
-**⌚ Duration:** 120 Minutes     
-**📝 IMDB Description:** A year after the Woodsboro murders, the survivors try to move on at Windsor College in Ohio-but when a new Ghostface killer starts a campus killing spree, they must face terror all over again. [See Full IMDB Page](https://www.imdb.com/title/tt0120082/?ref_=nv_sr_srsg_1_tt_7_nm_0_in_0_q_scream%202)    
+**⌚ Duration:** 120 Minutes 
+                         
+**📝 IMDB Description:** A year after the Woodsboro murders, the survivors try to move on at Windsor College in Ohio-but when a new Ghostface killer starts a campus killing spree, they must face terror all over again. [See Full IMDB Page](https://www.imdb.com/title/tt0120082/?ref_=nv_sr_srsg_1_tt_7_nm_0_in_0_q_scream%202)        
+                    
 **🎬 Letterboxd Review:** I actually enjoyed this Scream movie a lot more on rewatch. One of the killers was a lot more easily guessable than the other. However on rewatch I did notice Nancy Loomis lurking around in the background of a lot of shots. Cotton Weary’s character is reprised, and he definitely is creepy. I was very sad about Randy’s death, and I do wish we heard a little more about sequel rules.           
 
 Sequel Rules         
 1. Body count bigger       
 2. Death scenes always bigger     
-3. If want sequel to become a franchise, never ever…      
+3. If want sequel to become a franchise, never ever…   
+                 
 **🥤 IMDB Rating:** 6.3/10    
-**✨ My Rating:** 4.5 ⭐     
+**✨ My Rating:** 4.5 ⭐   
+                       
 **💭 Additional Thoughts:** Randy dying still gets me. It was so tragic and sad, but it does make way for his niece and nephew later on in the franchise. Poor Sidney can't catch a break. Nancy Loomis being one of the killers is a pretty neat spin. The audience may have been suspicous of her creeping around, but no one would know who she is until the end. She used a fake name, and she played her journalist part well enough to avoid suspicion.        
 Gale Weathers and Dewey are back in action. They are still flirting which I will admit I do like them together. This film had the feel of the original, but it did a good job making it new.                 
 
@@ -91,8 +100,10 @@ Gale Weathers and Dewey are back in action. They are still flirting which I will
 # Scream 3     
 **🗓️ Release Year:** 2000      
 **🍿 MPA Rating:** R     
-**⌚ Duration:** 116 Minutes  
-**📝 IMDB Description:** In Hollywood, a new Ghostface starts killing the cast of Stab 3, a movie sequel whose previous movies were based on the Woodsboro and Windsor College killings. Forcing the survivors of those previous attacks to confront terror once again. [See Full IMDB Page](https://www.imdb.com/title/tt0134084/?ref_=fn_t_1)     
+**⌚ Duration:** 116 Minutes 
+
+**📝 IMDB Description:** In Hollywood, a new Ghostface starts killing the cast of Stab 3, a movie sequel whose previous movies were based on the Woodsboro and Windsor College killings. Forcing the survivors of those previous attacks to confront terror once again. [See Full IMDB Page](https://www.imdb.com/title/tt0134084/?ref_=fn_t_1)   
+
 **🎬 Letterboxd Review:** This Scream film is good, but it’s not great. I think they tried to do way too much background character building for Sidney’s mom, Maureen. There was just so much going on. I also didn’t care for Roman insinuating that he was the one who schemed and planned the original murders in Scream by influencing Billy Loomis.             
 
 This film is different from the rest as it only has one killer. I thought Roman did a decent job, but I feel like we just don’t see enough of him to figure out he’s the killer.               
@@ -108,9 +119,11 @@ If it is a sequel, the same rules apply. If more backstory then you’re dealing
 Triology Rules           
 1. Killer is superhuman. They won’t die normally or easily.             
 2. Anyone including the main character can die.      
-3. The past will come back to bite you in the ass.        
+3. The past will come back to bite you in the ass.     
+
 **🥤 IMDB Rating:** 5.7/10   
-**✨ My Rating:** 3.5 ⭐      
+**✨ My Rating:** 3.5 ⭐    
+
 **💭 My Thoughts:** This one is meh. Upon thinking more about it I changed my original rating of 4 stars to 3.5 stars especially after reading my own review. As I said above, this film tries to do too much. The explosion was neat though. We do see no Stab films like Scream 2 and Scream 4 unless you count them making the Stab film as one. We just don't see it on the screen like the others. I do like to see Sidney finally living her life at the end as a "free" woman... until Scream 4.      
 Dewey and Gale get engaged! I thought his proposal was super cute.       
 
@@ -131,11 +144,15 @@ Dewey and Gale get engaged! I thought his proposal was super cute.
 # Scream 4    
 **🗓️ Release Year:** 2011      
 **🍿 MPA Rating:** R     
-**⌚ Duration:** 111 Minutes    
-**📝 IMDB Description:** Ten years after the original Woodsboro murders, one of the survivors returns home to promote their new book about surviving trauma, only for a new Ghostface killer to emerge, targeting a new group of teens. [See Full IMDB Page](https://www.imdb.com/title/tt1262416/?ref_=fn_t_1)     
-**🎬 Letterboxd Review:** This film felt like it was trying to do way too much to rewrite the genre. It tried to do all these things for the killer, but in the end it just fell flat. One of the killers being Sidney’s cousin was good. Her character was trying to do way too much. I think it maybe could of been executed a little better. I felt like the Gale and Dewey scenes also lacked some in this movie. It felt like it focused so much on how to be different that other details just got overlooked, and we never really learned much about the characters. I did like Kirby in this film though.           
+**⌚ Duration:** 111 Minutes  
+
+**📝 IMDB Description:** Ten years after the original Woodsboro murders, one of the survivors returns home to promote their new book about surviving trauma, only for a new Ghostface killer to emerge, targeting a new group of teens. [See Full IMDB Page](https://www.imdb.com/title/tt1262416/?ref_=fn_t_1)   
+
+**🎬 Letterboxd Review:** This film felt like it was trying to do way too much to rewrite the genre. It tried to do all these things for the killer, but in the end it just fell flat. One of the killers being Sidney’s cousin was good. Her character was trying to do way too much. I think it maybe could of been executed a little better. I felt like the Gale and Dewey scenes also lacked some in this movie. It felt like it focused so much on how to be different that other details just got overlooked, and we never really learned much about the characters. I did like Kirby in this film though.     
+
 **🥤 IMDB Rating:** 6.2/10      
-**✨ My Rating:** 2.5 ⭐
+**✨ My Rating:** 2.5 ⭐           
+
 **💭 Additional Thoughts:** Dewey's limp disappears in this film. It will return in the next film. Jill Roberts is batshit crazy. I did like the final death did not take place at the confrontation scene but at the hospital. That was a nice little twist. We meet Judy Hicks in this film who seems like a lovestruck puppy for Dewey.       
 
 **🩸 Kill Count:** 11 (15 if count Stab Movies Kills)             
@@ -158,11 +175,15 @@ Dewey and Gale get engaged! I thought his proposal was super cute.
 # Scream V       
 **🗓️ Release Year:** 2022       
 **🍿 MPA Rating:** R     
-**⌚ Duration:** 114 Minutes     
-**📝 IMDB Description:** 25 years after the original Woodsboro killings, a new Ghostface begins targeting teens connected to the town's dark past, drawing the final 3 survivors of the first attack back once more. [See Full IMDB Page](https://www.imdb.com/title/tt11245972/?ref_=fn_t_1)     
-**🎬 Letterboxd Review:** I liked the twins. I think they are a good nod to their uncle Randy. Why did Dewey have to die? (His limp was back in this film). I think the twist of the killers was a little meh. I did think that Amber’s method of dying was pretty brutal.           
+**⌚ Duration:** 114 Minutes  
+
+**📝 IMDB Description:** 25 years after the original Woodsboro killings, a new Ghostface begins targeting teens connected to the town's dark past, drawing the final 3 survivors of the first attack back once more. [See Full IMDB Page](https://www.imdb.com/title/tt11245972/?ref_=fn_t_1)   
+
+**🎬 Letterboxd Review:** I liked the twins. I think they are a good nod to their uncle Randy. Why did Dewey have to die? (His limp was back in this film). I think the twist of the killers was a little meh. I did think that Amber’s method of dying was pretty brutal.        
+
 **🥤 IMDB Rating:** 6.3/10    
 **✨ My Rating:** 3 ⭐      
+
 **💭 Additional Thoughts:** Amber burning alive was definitely brutual. Ghostface using a gun does not seem to fit with any of the other films. This is something Matthew Lillard pointed out in an interview. Samantha's dad is apparently Billy (Scream 1 killer) who she constantly keeps seeing. He offers her "advice." I didn't care for this too much. I thought it was just a way for them to link back to the originals by saying look here she's the daughter of this killer. Then after she viciously kills Richie, it seems to be a "will she be a serial killer like her father" type of deal. If you liked Billy, don't worry he's back in the next film too.       
 
 This film saw the death of one legacy character as well as one character introducded in the last film. Sidney does come back to help briefly.       
@@ -181,13 +202,17 @@ This film saw the death of one legacy character as well as one character introdu
 # Scream VI        
 **🗓️ Release Year:** 2023       
 **🍿 MPA Rating:** R     
-**⌚ Duration:** 122 Minutes     
-**📝 IMDB Description:** After surviving the latest Woodsboro murders, a group of teens move to New York City, hoping for a fresh start, only to find a new killer picking up where the last Ghostface killer left off. [See Full IMDB Page](https://www.imdb.com/title/tt17663992/?ref_=fn_t_1)        
+**⌚ Duration:** 122 Minutes   
+
+**📝 IMDB Description:** After surviving the latest Woodsboro murders, a group of teens move to New York City, hoping for a fresh start, only to find a new killer picking up where the last Ghostface killer left off. [See Full IMDB Page](https://www.imdb.com/title/tt17663992/?ref_=fn_t_1)      
+
 **🎬 Letterboxd Review:** Loved the twins.      
 
 The main issue between Tara and Sam got old fast. Ghostface would never shoot someone. Ghostface as 3 people was a good twist, and I did like they were apart of Richie’s family so it continued on from the last story. This film was definitely a lot more gory than the others. I liked the return of Kirby’s character. I thought her role at the FBI fit her character well.       
+
 **🥤 IMDB Rating:** 6.4/10     
 **✨ My Rating:** 2.5 ⭐     
+
 **💭 Additional Thoughts:** I did not realize Ghostface also shoots someone in this film. The twist of the killers was stupid. There is no Sidney Prescott in this film. Gale does get pretty badly injured which we see carry on into the next film.        
 
 **🩸 Kill Count:** 13     
@@ -210,8 +235,10 @@ The main issue between Tara and Sam got old fast. Ghostface would never shoot so
 # Scream 7    
 **🗓️ Release Year:** 2026      
 **🍿 MPA Rating:** R     
-**⌚ Duration:** 114 Minutes    
+**⌚ Duration:** 114 Minutes   
+
 **📝 IMDB Description:** When a new Ghostface killer emerges in the town where Sidney Prescott has built a new life, her darkest fears are realized as her daughter becomes the next target. [See Full IMDB Page](https://www.imdb.com/title/tt27047903/?ref_=fn_t_1)   
+
 **🎬 Letterboxd Review:** *From First Watch:*     
 Was it amazing and mind blowing? No            
 Was it a decent nod to the original films? Yes                            
@@ -230,9 +257,16 @@ The cops in the town suck. They are supposedly called when Stu calls Gale and Si
 
 I did like the twins being brought back, and I do think they are a good nod to Randy. They break up the movie some and provide more of that comedic effect. They’re extra bit at the end was funny.           
 
-I think that this should be the last film. I don’t think there needs to be anymore. They should stop now before they ruin everything.      
+I think that this should be the last film. I don’t think there needs to be anymore. They should stop now before they ruin everything.     
+
+*Second Watch:*         
+On rewatch, I conclude this is a solid 3.5 ⭐️        
+
+I am left more questions to ponder about the choices the characters make.  
+
 **🥤 IMDB Rating:** 6.0/10   
-**✨ My Rating:** 3.5 ⭐           
+**✨ My Rating:** 3.5 ⭐         
+  
 **💭 Additional Thoughts:** I absolutely love the song "The Kill" by STELLA LEFTY that is featured in the movie. It is so addicting and good. Highly recommend checking it out if you haven't heard it. This is a minor complaint about casting but Joel McHale as Mark Evans was eh. The reason they couldn't get Patrick Dempsey back as Mark Kincaid was because he was busy filming something else. Also the writers said technically they never said which Mark Sidney married (because we see her married and with a kid in Scream V). They did give Mark Evans a similar job to Mark Kincaid. Maybe they thought they could trick people? IDK what the writers' plan was.          
 
 Lucas' death in the bar is so brutual holy shit. I absolutely hated watching him being picked up and put on the beer tap. Then to top it off beer came out of his mouth 🤢. Also literally his mom killer her own son like what???      
