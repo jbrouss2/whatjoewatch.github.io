@@ -66,3 +66,12 @@ Overall I enjoyed the movie, and I’d definitely give it another watch. It was 
 “Stockholm called, they want their syndrome back.”     
 
 “Forever my girl.”      
+
+![Miranda Saying "That's All" Gif](https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExMTV3aXpjNmx4eTFndTdzN3ZpNjQwbGlhbGpubDE1dnJkY25vczMxbyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/aCibltbaDuT2E/giphy.gif)      
+
+----
+Thanks for reading, and I'd love to hear your on the new film!    
+
+Happy watching! 🍿   
+
+XOXO 💗 Joe    
