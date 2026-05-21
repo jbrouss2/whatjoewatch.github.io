@@ -231,9 +231,8 @@ The main issue between Tara and Sam got old fast. Ghostface would never shoot so
 1. 🔪 Detective Wayne Kirsch/Wayne Bailey     
 1. 🔪 Ethan Kirsch/Ethan Landry     
 
-🎥🎥         
 
-# Scream 7    
+# 🎥 Scream 7 🎥       
 **🗓️ Release Year:** 2026      
 **🍿 MPA Rating:** R     
 **⌚ Duration:** 114 Minutes   
