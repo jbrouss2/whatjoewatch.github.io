@@ -10,12 +10,12 @@ tags: []
 If you aren't familiar with Tubi, it is another streaming platform that has the caveat of being free. Tubi has movies that aren't considered mainstream although every month it may have a few. It mainly has a lot of TV movies and straight to DVD movies. Similar to other streaming platforms, Tubi has Tubi Originals. Unlike some of the other streaming platforms, Tubi has the ability for someone to upload their own self-made movie on the platform.     
             
 Here are some questions to ask yourself if you are looking for your big movie break:   
-1. Do you have the desire to be a movie star? 
-2. Do you have friends with a camera?
-3. Do you have a computer and access to some free editing software?
-4. Do you have some microphones?
-5. Can you write a script?
-6. Can you read a script?  
+1. Do you have the desire to be a movie star? 🤩
+2. Do you have friends with a camera? 📹
+3. Do you have a computer and access to some free editing software? 💻
+4. Do you have some microphones? 🎙️
+5. Can you write a script? 📝
+6. Can you read a script? 📖 
 
 If you answered yes to these questions, then you can most certainly make a movie and put it on Tubi! No acting skills required.      
 
