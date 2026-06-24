@@ -70,7 +70,7 @@ Overall I enjoyed the movie, and I’d definitely give it another watch. It was 
 ![Miranda Saying "That's All" Gif](https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExMTV3aXpjNmx4eTFndTdzN3ZpNjQwbGlhbGpubDE1dnJkY25vczMxbyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/aCibltbaDuT2E/giphy.gif)      
 
 ----
-Thanks for reading, and I'd love to hear your on the new film!    
+Thanks for reading, and I'd love to hear your thoughts on the new film!    
 
 Happy watching! 🍿   
 
