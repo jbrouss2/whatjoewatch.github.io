@@ -38,7 +38,7 @@ Today we will be talking about a few *gems* on Tubi that I think need to stay hi
 **📝 Tubi Description:** Discovering she's been betrayed, a scorned woman’s obsession spirals into stalking, secrets, and a twisted new romance as revenge blurs into danger. [View the Movie on Tubi](https://tubitv.com/movies/100049602/kayla)         
 **🥤 IMDB Rating:** 3.9 /10 -- 41 people rated it    
 **📦 Letterboxd Rating:** 2.3/5    
-**✨ My Rating:** 0.5 ⭐
+**✨ My Rating:** 0.5 ⭐     
 **🎬 Letterboxd Review:** I- the last 20 seconds of the movie was the best part. The acting was mid. Kayla was psycho. Julian was a player. The bar was ridiculous. Don’t even get me started on the fancy restaurant which I’m pretty sure was the bar with black tablecloths and rose petals. I swear Ashely was eating rotisserie chicken out a bowl. Why was TJ’s first response to shoot Kayla???    
 
 “K-A-Y-L-A”       
