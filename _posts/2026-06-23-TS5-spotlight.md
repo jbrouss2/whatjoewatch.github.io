@@ -5,13 +5,13 @@ categories: [spotlight]
 tags: []
 ---
 
-*Are physical toys becoming obsolete?*     
+*Are physical toys becoming obsolete? Let's discuss the film!*     
 
-First and foremost: Is Toy Story 5 worth the watch? 👀    
+*First and foremost:* Is Toy Story 5 worth the watch? 👀    
 
 Yes! 100% recommend going to see if especially if have elementary school and middle school aged kids.      
 
-**My Rating:** 4.5 ⭐ 
+**My Rating:** 4.5 ⭐      
 **IMDB Rating:** 7.6/10       
 **LetterBox'd Rating:** 3.8/5              
 **Release Date:**  June 19, 2026       
@@ -37,9 +37,10 @@ Yes! 100% recommend going to see if especially if have elementary school and mid
 - Blaze ✨ - Mykal-Michelle Harris - Lives on a farm, 9.5 years old    
 - Bonnie's Mom - Lori Alan    
 - Bonnie's Dad - Jay Hernandez   
-- Blaze's Mom - Krys Marshall            
-- Chelsea, Heidi, & Kara - Dance girls/mean girls    
+- Blaze's Mom ✨ - Krys Marshall            
+- Chelsea, Heidi, & Kara ✨ - Dance girls/mean girls    
 
+<div class="tenor-gif-embed" data-postid="14694458850014302812" data-share-method="host" data-aspect-ratio="1.76991" data-width="100%"><a href="https://tenor.com/view/toy-story-5-gif-14694458850014302812">Toy Story 5 Meme</a>from <a href="https://tenor.com/search/toy+story+5-memes">Toy Story 5 Memes</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>   
 ![Cartoon of Buzz Lightyear and Jessie looking at LilyPad](https://tenor.com/view/toy-story-5-gif-14694458850014302812)
 
 **My Thoughts 🧠:**        
