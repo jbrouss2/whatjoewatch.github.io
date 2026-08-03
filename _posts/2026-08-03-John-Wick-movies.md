@@ -1,6 +1,6 @@
 ---
 layout: single
-title: "John Wick: Don't Mess with this Man's Dog 🔫🐶"
+title: "John Wick: Killing People with all Kinds of Objects 🔫📚"
 categories: [movies]
 tags: []
 ---     
