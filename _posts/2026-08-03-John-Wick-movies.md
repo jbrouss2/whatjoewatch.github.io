@@ -146,3 +146,4 @@ Spend time with your dog (or any dog)
 ![John Wick running with his dog](https://media.giphy.com/media/v1.Y2lkPWVjZjA1ZTQ3ZWhkYWJ0MTVkZmFmMHh2NG40NXN1ZTVnNzZoeTVwNHZyNDRueGNmYiZlcD12MV9naWZzX3NlYXJjaCZjdD1n/jUuPAElagtJIQKjwOe/giphy.gif)     
 
 XOXO 💗 Joe    
+
