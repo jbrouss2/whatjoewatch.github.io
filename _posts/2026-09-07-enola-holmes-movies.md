@@ -15,7 +15,7 @@ Smart women and hot men, what can I say? Millie Bobby Brown as Enola Holmes, Hel
 
 So without further ado, let's investigate this franchise!        
 
-![Enola Holmes saying "The game is afoot."](https://tenor.com/bqmIG.gif)          
+![Enola Holmes saying "The game is afoot."](https://tenor.com/view/the-game-is-afoot-enola-holmes-millie-bobby-brown-holmes-gif-18637852)          
 
 🚨**Spoilers ahead**🚨
 ----       
