@@ -88,11 +88,12 @@ Overall the film was gritty and real. I don't think it was anything that was cra
 
 The movie was predictable in terms of the plot. I don't necessarily think this is a bad thing as it did work. There was nothing in the movie that didn't seem to fit with what was happening. I was surprised that The Man and his people didn't come back later on in the film.    
 
-I think there was some stylistic options that I did not necessarily care for. There were quite a few black screen scenes. There was enough that I am calling it out. It felt a little overused. The film itself was also very dark in terms of brightness that even in a movie theater it was hard to make out some of what was happening on the screen.    
+I think there was some stylistic choices that I did not necessarily care for. There were quite a few black screen scenes. There was enough that I am calling it out. It felt a little overused. The film itself was also very dark in terms of brightness that even in a movie theater it was hard to make out some of what was happening on the screen.    
 
 The score was very well-done which I touched on above. I think that really helped the movie out. Overall it was good. I don't think the film was super action heavy. There were a few fight scenes, but beyond that it was more about the drama and grit of the journey.    
           
 *No gifs from the movie since it isn't technically out yet, and I can't find any 😔*
+       
 ----
 Thanks for reading, and I'd love to hear your thoughts on the new film!    
 
