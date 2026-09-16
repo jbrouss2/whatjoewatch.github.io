@@ -9,9 +9,11 @@ tags: []
 
 ## Introduction     
 
-Before we dive in, I want to provide some context. Cinemark has mystery movies where they provide solely the MPA rating of the film. The tickets are $5 which is a pretty good deal IMO. It's one of those things where you try not to have expectations of what you are going to see (even though let's be honest, you most certainly will). For me, I had some ideas of what the film can be as it is typically something coming out soon usually in that same month. Since these film had a rating of R, I was honestly expecting a horror movie. I had taken a look at what is coming out and thought it could be Resident Evil or The Uprising. I honestly hadn't heard much about this movie, and I had no clue what it was when I saw the opening credits. I knew it wasn't something as mainstream because it opened about with a Sundance films screen as well as a bunch of other independent companies.        
+Before we dive in, I want to provide some context. Cinemark has mystery movies where they provide solely the MPA rating of the film. The tickets are $5 which is a pretty good deal IMO. It's one of those things where you try not to have expectations of what you are going to see (even though let's be honest, you most certainly will). For me, I had some ideas of what the film can be as it is typically something coming out soon usually in that same month. Since these film had a rating of R, I was honestly expecting a horror movie. I had taken a look at what is coming out and thought it could be Resident Evil or The Uprising.      
 
-I think part of it is to encourage you to see a film you wouldn't necessarily watch which it achieved for me. I can definitely say I would not have personally sought out to watch this film in theaters had I seen the trailer. I think there is a slight possibility that I may have watched this film when it came to streaming, but I honestly can't say that for sure.      
+I think part of it is to encourage you to see a film you wouldn't necessarily watch which it achieved for me. I can definitely say I would not have personally sought out to watch this film in theaters had I seen the trailer. I think there is a slight possibility that I may have watched this film when it came to streaming, but I honestly can't say that for sure.    
+
+The movie that played was entitled *The Weight*. I honestly hadn't heard much about this movie, and I had no clue what it was when I saw the opening credits. I knew it wasn't something as mainstream because it opened about with a Sundance films screen as well as a bunch of other independent companies.              
 
 I did watch this movie last night, September 07, 2026, so it is fresh on my mind!     
 
@@ -27,7 +29,7 @@ Enough about that, let's actually talk about the film!
 **Genre:** Thriller, Action, Crime, Drama     
 **Duration:** 112 Minutes      
 **IMDB Description:** Desperate to save what is left of his family, during the height of the Great Depression a battle-scarred veteran is hired to help smuggle a fortune in gold across 100 miles of impenetrable wilderness. [See Full IMDB Page](https://www.imdb.com/title/tt10794054/?ref_=nv_sr_srsg_0_tt_7_nm_1_in_0_q_the%20weight)   
-**Cinemark Description:** When Samuel (Ethan Hawke) is torn from his daughter and sent to a brutal prison, Warden Clancy (Russell Crowe) offers a high-stakes proposition: smuggle gold out of a remote mine with a dangerous crew of prisoners and he’ll win his freedom. But as the group journeys into the unforgiving wilderness, the real threat isn’t the terrain — it’s the betrayal and violence festering within their ranks. Surrounded by greed, suspicion, and danger, Samuel must risk everything to reunite with his child. [See Full Cinemark Page](https://www.cinemark.com/movies/the-weight)
+**Cinemark Description:** When Samuel (Ethan Hawke) is torn from his daughter and sent to a brutal prison, Warden Clancy (Russell Crowe) offers a high-stakes proposition: smuggle gold out of a remote mine with a dangerous crew of prisoners and he’ll win his freedom. But as the group journeys into the unforgiving wilderness, the real threat isn’t the terrain — it’s the betrayal and violence festering within their ranks. Surrounded by greed, suspicion, and danger, Samuel must risk everything to reunite with his child. [See Full Cinemark Page](https://www.cinemark.com/movies/the-weight)      
 **Movie in 5 Emojis:** 🚗🚓⛏️💰🔫            
 
 **Synopsis + My Thoughts 🧠:**  
