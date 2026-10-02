@@ -65,6 +65,6 @@ Happy watching! 🍿
 
 Until tomorrow,     
         
-![]()            
+![Elvira waving](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExemdzb3BlZ2wzcWI4eGZieDVkZHN6em53aDh2ejRyM3l4M2FhcXpteiZlcD12MV9naWZzX3NlYXJjaCZjdD1n/2kSeHoscNp9Yc9KA32/giphy.gif)             
 
 XOXO 💗 Joe    
