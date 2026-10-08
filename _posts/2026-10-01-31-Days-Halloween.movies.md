@@ -232,7 +232,7 @@ I thought the story was cute. We didn’t really see much of Dennis. It was focu
 **🥤 IMDB Rating:** 1.9/10      
 **✨ My Rating:** 0.5 ⭐   
 
-![Lone Star Shark Poster](photos\LoneStarShark.png)      
+![Lone Star Shark Poster](LoneStarShark.png)      
 
 **🎞️Total Duration Watched:** 420 Minutes   
 
