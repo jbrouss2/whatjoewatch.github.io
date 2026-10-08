@@ -114,7 +114,7 @@ Once again, I was on a trip, and I did not get a chance to watch a film this day
 **🥤 IMDB Rating:** 5.8/10      
 **✨ My Rating:** 2.5 ⭐  
 
-(![Scooby-Doo and Shaggy as pumpkins](scoobydoo.png))       
+(![Scooby-Doo and Shaggy as pumpkins](photos\scoobydoo.png))       
 
 **🎞️Total Duration Watched:** 244 Minutes    
 
@@ -157,9 +157,84 @@ I thought the story was cute. We didn’t really see much of Dennis. It was focu
 **🥤 IMDB Rating:** 6.2/10      
 **✨ My Rating:** 3 ⭐  
 
-![alt text](madagascar.png)       
+![alt text](photos\madagascar.png)       
 
 **🎞️Total Duration Watched:** 355 Minutes  
+
+## Day 7: October 7th
+**🎥 Movie:** Lone Star Shark     
+**🗓️ Release Year:** 2025              
+**🍿 MPA Rating:** TV-MA             
+**⌚ Duration:** 65 Minutes      
+**📺 Where I Watched:** Tubi    
+                    
+**📝 IMDB Description:** A shark terrorizes a young couple on a small Texas lake. [See Full IMDB Page](https://www.imdb.com/title/tt32242519/?ref_=nv_sr_srsg_0_tt_7_nm_1_in_0_q_lone%20star%20shark) Here is the LetterBoxd description bc tbh the IMDB one sucks: A group of virtual hunters unleash a deadly shark in a Texas lake, causing a young couple to fight for their lives during a peaceful fishing trip in a secluded cove. Also read [this](https://boxd.it/ff0shT) review for a chuckle (after you read mine of course 😤)     
+              
+**🎬 Letterboxd Review:** Alright let’s discuss…    
+       
+1. We got some people in an office discussing I don’t even know what. Why is he making his voice sound like that????      
+2. We have a woman who’s smelling a shirt and some other girl is creepily looking in. She’s about to get caught and hides it, and her husband is like I know what you are doing. 
+3. They have their jacked up truck and they go to the smallest lake arguably a pond. 
+4. She has some weird memory holding a gun on the pier. The husband makes some lame ass joke. 
+5. They’re on a boat in the tiny as lake. 
+6. Guy at the marina??? What marina??
+7. The shark looks so bad. 
+8. Dumbass tossed his phone in the lake. They have no signal but we literally can see the shore. I don’t believe it. 
+9. There’s a camera constantly recording that we see. What is this screen? Is it supposed to be the shark? 
+10. The boat moving so slowly with music that tries to make it seem faster is ridiculous. They are going in circles. The large body of water they show is most certainly not anywhere close to them. 
+11. They did not find a cove. They pulled up on the side. 
+12. Mitch this isn’t a fucking sailboat. 
+13. Why is Mitch’s back constantly to the camera??
+14. The anchor is stuck? How about get onto the shore you’re literally right by and walk. You can’t possibly have gone that far. 
+15. “No it’s not fine Mitch. It’s a big ass shark!”
+16. Wow Mitch show a little compassion. 
+17. The shark got human teeth. 
+18. THE SHORE IS RIGHT BY YOU. JUMP OFF THE FUCKING BOAT. 
+19. Via is annoying too. 
+20. Mitch you dumbass. You dropped the phone into the lake. 
+21. Back to these people in an office building, what is happening? The man sounds like the grinch. 
+22. How did Mitch fall in?
+23. Mitch’s cut was not that bad for him to be acting that way. 
+24. How did the other boat not see them or the shark or anything?
+25. THE SHORE IS NEXT TO YOU WHAT DO YOU MEAN?? Going to pass out?? Mitch you’ve lose very little blood. You have  flesh wound you’re fine. 
+26. Why did she have to strip to her swimsuit and take off all her jewerly to get in the water to swim to shore? Isn’t this life or death? 
+27. She didn’t get a foot from the boat before the shark appeared, and he freaked out and was like get back in the boat. She has basically 0 reaction. 
+28. “I thought you were going to make it.” No you fucking did it. Don’t lie Mitch. 
+29. I will give them props for getting sunburnt. 
+30. Where is the shark? What is this view? Is he in the sky?
+31. That is not how you code. You don’t have big flashing things that say system engaged or whatever stupid thing it said. 
+32. The scene where she finds her sister. She wasn’t saying that the first time. Why is it different??
+33. The blood looks so fake on the mirror. 
+34. How did she not hear the shot? Why is the gunshot on the wrong side of her head? The gun fell from her right hand, but the shot was on her left. 
+35. I know it’s Texas bc she got a Kendra Scott necklace on. 
+36. Mitch’s wound is minuscule how is he dying??
+37. THEY HAD A BAG THIS WHOLE FUCKING TIME WITH A GIANT ASS KNIFE AND FOOD??? Why does he have a giant kitchen knife 🤨
+38. Again this isn’t how hacking and coding works. 
+39. Are they stealing credit card data? What was the point of that shot?
+40. Why wasn’t she already undressed as soon as he got in the water? 
+41. Bye Mitch. You’re being eaten by the papier-mâché  shark.
+42. Why did she call no one after she found her sister? Why is her blood all over her face? Hello????
+43. Was this while movie a dream? I’m going to be pissed if so. 
+44. Thank goodness it wasn’t all a dream. 
+45. Ah so her family was crazy. Is this weird guy her dad? He said some of the same poems as Via’s sister Claire. 
+46. Her not breaking the stick on the first try was great. 
+47. The shark is in completely different waters than her. 
+48. Where is the camera that is watching them?
+49. She’s stabbing and the shark is just there like 😐
+50. Where did this man with a gun come from? “Hey girl you alright?” Was he just watching like this dumb bitch?? How did she not see him?? The lake is wide open. 
+51. We see the creepy guy’s face. Why do they speak in riddles? 
+52. She made it home with a broken arm. How did she get that? She also speaks to her dead sister. 
+53. She’s still being watched. She got rid of a nightstand like okay? 
+54. This is not how coding works. It’s so dumb. 
+55. If I could rate this film 0 I would. The fact they made two more in the same year is astounding.      
+             
+**📼 Letterboxd Rating:** 2.4/5               
+**🥤 IMDB Rating:** 1.9/10      
+**✨ My Rating:** 0.5 ⭐   
+
+![Lone Star Shark Poster](photos\LoneStarShark.png)      
+
+**🎞️Total Duration Watched:** 420 Minutes   
 
 
 ----   
