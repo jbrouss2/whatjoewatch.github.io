@@ -196,10 +196,10 @@ I thought the story was cute. We didn’t really see much of Dennis. It was focu
 22. How did Mitch fall in?
 23. Mitch’s cut was not that bad for him to be acting that way. 
 24. How did the other boat not see them or the shark or anything?
-25. THE SHORE IS NEXT TO YOU WHAT DO YOU MEAN?? Going to pass out?? Mitch you’ve lose very little blood. You have  flesh wound you’re fine. 
+25. THE SHORE IS NEXT TO YOU WHAT DO YOU MEAN?? Going to pass out?? Mitch you’ve lost very little blood. You have  flesh wound you’re fine. 
 26. Why did she have to strip to her swimsuit and take off all her jewerly to get in the water to swim to shore? Isn’t this life or death? 
 27. She didn’t get a foot from the boat before the shark appeared, and he freaked out and was like get back in the boat. She has basically 0 reaction. 
-28. “I thought you were going to make it.” No you fucking did it. Don’t lie Mitch. 
+28. “I thought you were going to make it.” No you fucking did not. Don’t lie Mitch. 
 29. I will give them props for getting sunburnt. 
 30. Where is the shark? What is this view? Is he in the sky?
 31. That is not how you code. You don’t have big flashing things that say system engaged or whatever stupid thing it said. 
@@ -214,7 +214,7 @@ I thought the story was cute. We didn’t really see much of Dennis. It was focu
 40. Why wasn’t she already undressed as soon as he got in the water? 
 41. Bye Mitch. You’re being eaten by the papier-mâché  shark.
 42. Why did she call no one after she found her sister? Why is her blood all over her face? Hello????
-43. Was this while movie a dream? I’m going to be pissed if so. 
+43. Was this whole movie a dream? I’m going to be pissed if so. 
 44. Thank goodness it wasn’t all a dream. 
 45. Ah so her family was crazy. Is this weird guy her dad? He said some of the same poems as Via’s sister Claire. 
 46. Her not breaking the stick on the first try was great. 
