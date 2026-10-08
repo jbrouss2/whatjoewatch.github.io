@@ -157,7 +157,7 @@ I thought the story was cute. We didn’t really see much of Dennis. It was focu
 **🥤 IMDB Rating:** 6.2/10      
 **✨ My Rating:** 3 ⭐  
 
-![Photo of the characters](photos/madagascar.png)       
+![Photo of all the characters](/assests/images/madagascar.png)       
 
 **🎞️Total Duration Watched:** 355 Minutes  
 
