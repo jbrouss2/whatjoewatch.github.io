@@ -114,7 +114,7 @@ Once again, I was on a trip, and I did not get a chance to watch a film this day
 **🥤 IMDB Rating:** 5.8/10      
 **✨ My Rating:** 2.5 ⭐  
 
-(![Scooby-Doo and Shaggy as pumpkins](photos\scoobydoo.png))       
+![Scooby-Doo and Shaggy as pumpkins](photos/scoobydoo.png)       
 
 **🎞️Total Duration Watched:** 244 Minutes    
 
@@ -157,7 +157,7 @@ I thought the story was cute. We didn’t really see much of Dennis. It was focu
 **🥤 IMDB Rating:** 6.2/10      
 **✨ My Rating:** 3 ⭐  
 
-![alt text](photos\madagascar.png)       
+![Photo of the characters](photos/madagascar.png)       
 
 **🎞️Total Duration Watched:** 355 Minutes  
 
