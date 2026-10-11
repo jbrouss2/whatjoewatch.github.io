@@ -236,6 +236,114 @@ I thought the story was cute. We didn’t really see much of Dennis. It was focu
 
 **🎞️Total Duration Watched:** 420 Minutes   
 
+## Day 8:
+I was traveling back to Louisiana and sick, so there was no movie for me today. 🧍‍♀️    
+
+Forgive me...pls.
+
+![Puss in Boots Begging](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExd204bm1uZW03NHJjenMyM3Vzb3Z6ZHA4emVwZ3R5YnE1ZG5zd3N0aCZlcD12MV9naWZzX3NlYXJjaCZjdD1n/qUIm5wu6LAAog/giphy.gif)    
+
+## Day 9:
+### 1st Movie:
+Not a Halloween one so we won't talk about it, but if you were wondering it was Ice Age. 🤓 This won't be in the overall total duration count.       
+
+### 2nd Movie:   
+**🎥 Movie:** Sing: Thriller     
+**🗓️ Release Year:** 2024               
+**🍿 MPA Rating:** TV-PG            
+**⌚ Duration:** 14 Minutes    
+**📺 Where I Watched:** Netflix     
+                    
+**📝 IMDB Description:** The short film is based on Michael Jackson's hit song "Thriller" from his 1982 album of the same name. A theater troupe's "Thriller" performance goes awry when partygoers transform into zombie dancers after exposure to a mysterious ooze. [See Full IMDB Page](https://www.imdb.com/title/tt33999453/?ref_=fn_t_1)        
+              
+**🎬 Letterboxd Review:** Cute Halloween themed short film! I liked the plot, and it was a good amount of the original Sing cast. I thought it was fun, and I enjoyed the music. I wish there was just a little bit more.          
+             
+**📼 Letterboxd Rating:** 2.9/5               
+**🥤 IMDB Rating:** 6.6/10      
+**✨ My Rating:** 3.5 ⭐  
+
+![Sing Thriller](/assests/images/singThriller.png)           
+
+**🎞️Total Duration Watched:** 434 Minutes    
+
+### 3rd Movie:
+**🎥 Movie:** Water Park Shark       
+**🗓️ Release Year:** 2026             
+**🍿 MPA Rating:** PG-13            
+**⌚ Duration:** 91 Minutes    
+**📺 Where I Watched:** Tubi    
+                    
+**📝 IMDB Description:** When Great White Sharks storm a Cape Cod water park, a washed-up football star-turned-lifeguard and his ex-girlfriend police chief must uncover the shocking secret drawing in the ocean's biggest predators before it's too late. [See Full IMDB Page](https://www.imdb.com/title/tt38890293/?ref_=fn_t_1)          
+              
+**🎬 Letterboxd Review:** The first thing I notice is this has an actual MPA rating of PG-13 and not TV-MA like the others.    
+
+1. How did the shark get from the pool and magically coming down the water slide?
+2. Did the shark eat them whole and get rid of all the blood in the water?
+3. They keep saying something is wrong with his leg but like what is wrong with it? It seems like it was from a football injury. 
+4. He magically put on the whistle so fast. 
+5. Why does coach keep slapping his ass? Why is the sound effect so strong?
+6. Why did he get partly pat down when he was going in to pay his parking fines?
+7. Why is he so sad about leaving the park? He worked there literally one day. 
+8. Why would she ride down a slide that has something obstructing it?
+9. Subplot of mayor using a ton of power to do some weird job. 
+10. We found something. Can you come over here? Um girl they don’t even know where you are. 
+11. Wow we’re investigating sharks, so I’m going to stick my hand in the water and scream when a shark appears. 
+12. Shark looking kinda girly pop. She’s feeding it gummies. It has no teeth. She wants to pet it. She deserves to die. 
+13. Just a casual med degree folk whose day job is working at the water park. 
+14. Another sub plot of blue goop which we see being pumped out from the park. Not discretely may I add. 
+15. Did he ever retrieve his duffel bag and call the guy from his football team? 
+16.  Definitely nothing suspicious about yelling across the river that something is coming your way 
+17. Was he able to get in contact with the slide people? They sent the one girl down, but he never talked to anybody else after that???
+18. I’d be a little more concerned if my friend just disappeared in the pool. 
+19. Plot twist he was an FBI agent and is investigating the park even after losing his job as an agent. 
+20. Omg they’re crypto mining how 2026 can this movie get?
+21. Why didn’t they get everyone out the park when the sharks broke through the wall?
+22. Why didn’t she handcuff him to anything? She was like stay here. Like duh he’s not going to listen. 
+23. She zapped it with the defibrillator.   
+24. I love how the kids from the whole film were able to whack a shark with the lifeguard stick. 
+25. The mayor has a timer on his phone that says my data transfer 😐
+26. She didn’t think to check on the mayor the entire time they had their montage of planning to get rid of the sharks. 
+27. Thought she was the lifeguard 🤨 why did the chief have to get in to save her. 
+28. How did the lock get there? Um m’am you left the mayor to just stay put. Also the mayor left bolt cutters easily accessible. 
+29. “Coach step 69: Don’t mess with coach.”
+30. She has perfect aim of the t-shirt cannon to spit out Gatorade into the big bucket.
+31. Perfect throw to get the thing unstuck from gotta be significant distance, the mayor magically catches it, the girl saves the toothless shark, the girl defibrillates the water and doesn’t electrocute herself. Wow. Wait then she’s still moving some and is able to shock herself alive. What. 
+32. Coach is in the bluest water that was def not the same water as the lake. The shark with no teeth has survived with not water. The music at the end is fun though. 
+33. Let’s makeout while everyone watches. Then they follow it up with a super cringe high five with boosted audio effects. 
+
+This movie wasn’t too bad. It had a decent plot idea. Yeah it was cringey and silly, but it wasn’t unbearable. I liked that Gums has their own thing at the end. Woah wait the mayor was working with the football coach guy??? The mayor somehow got the crypto stick. No one thought to look for him after? Okay the AI sounding song in the credits brings it down.           
+             
+**📼 Letterboxd Rating:** 2.0/5               
+**🥤 IMDB Rating:** 3.5/10      
+**✨ My Rating:** 2 ⭐  
+
+![Water Park Shark Poster](/assests/images/waterParkSharkPoster.png)           
+
+**🎞️Total Duration Watched:** 525 Minutes    
+
+## Day 10: 
+### TV Show
+This counts bc I make the rules, and a Halloween show is going to count in my books. 😈      
+**🎥 Show:** Haunted Hotel    
+**📹 Seasons:** 2   
+**📺 Season Watched:** 2 
+**🎞️ Episodes:** 8           
+**🗓️ Release Year:** 2026 (Season 2 dropped 10/09/2026)             
+**🍿 MPA Rating:** TV-14             
+**⌚ Duration:** 201 Minutes (25 for episodes 1-7 & 26 for episode 8)     
+**📺 Where I Watched:** Netflix     
+                    
+**📝 IMDB Description:** A single mom with two kids operates a haunted hotel, aided by her late brother's ghost who believes they can have ingenious ideas despite his ethereal state. [See Full IMDB Page](https://www.imdb.com/title/tt32499579/?ref_=nv_sr_srsg_1_tt_7_nm_0_in_0_q_haunted%20hote)         
+              
+**🎬 Review:** I binged watched season 2 in two days. I would have definitely finished in one, but I wanted to try to savor it. I thought the second season was just as good as the first. I love the characters, and it very much reminds me of Gravity Falls. I though the storylines fit, and it was fun to see more about the characters, and we even saw some more of their past. I will most likely be re-watching this again. I do wish that season 2 had 10 episodes like season 1 but alas beggers can't be choosers.              
+
+These are for the show in its entirety.        
+**🥤 IMDB Rating:** 7.7/10      
+**✨ My Rating:** 4.5 ⭐  
+
+![Abbadon as the bellhop with the rest of the family looking on](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExZmVqNW0wcGdocTNneHhieWZydHNlMnh5eWFhMmp3cDR0cmVrd2d6ayZlcD12MV9naWZzX3NlYXJjaCZjdD1n/c0M8AClhrYGMpYySRu/giphy.gif)        
+
+**🎞️Total Duration Watched:** 726 Minutes    
 
 ----   
 Thanks for reading, and I'd love to hear your thoughts and suggestions for films to watch this month!       
