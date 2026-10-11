@@ -236,14 +236,14 @@ I thought the story was cute. We didn’t really see much of Dennis. It was focu
 
 **🎞️Total Duration Watched:** 420 Minutes   
 
-## Day 8:
+## Day 8: October 8th  
 I was traveling back to Louisiana and sick, so there was no movie for me today. 🧍‍♀️    
 
 Forgive me...pls.
 
 ![Puss in Boots Begging](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExd204bm1uZW03NHJjenMyM3Vzb3Z6ZHA4emVwZ3R5YnE1ZG5zd3N0aCZlcD12MV9naWZzX3NlYXJjaCZjdD1n/qUIm5wu6LAAog/giphy.gif)    
 
-## Day 9:
+## Day 9: October 9th   
 ### 1st Movie:
 Not a Halloween one so we won't talk about it, but if you were wondering it was Ice Age. 🤓 This won't be in the overall total duration count.       
 
@@ -321,7 +321,7 @@ This movie wasn’t too bad. It had a decent plot idea. Yeah it was cringey and 
 
 **🎞️Total Duration Watched:** 525 Minutes    
 
-## Day 10: 
+## Day 10: October 10th    
 ### TV Show
 This counts bc I make the rules, and a Halloween show is going to count in my books. 😈      
 **🎥 Show:** Haunted Hotel    
@@ -343,7 +343,9 @@ These are for the show in its entirety.
 
 ![Abaddon as the bellhop with the rest of the family looking on](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExZmVqNW0wcGdocTNneHhieWZydHNlMnh5eWFhMmp3cDR0cmVrd2d6ayZlcD12MV9naWZzX3NlYXJjaCZjdD1n/c0M8AClhrYGMpYySRu/giphy.gif)        
 
-**🎞️Total Duration Watched:** 726 Minutes    
+**🎞️Total Duration Watched:** 726 Minutes  
+
+
 
 ----   
 Thanks for reading, and I'd love to hear your thoughts and suggestions for films to watch this month!       
