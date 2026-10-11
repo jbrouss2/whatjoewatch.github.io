@@ -335,13 +335,13 @@ This counts bc I make the rules, and a Halloween show is going to count in my bo
                     
 **📝 IMDB Description:** A single mom with two kids operates a haunted hotel, aided by her late brother's ghost who believes they can have ingenious ideas despite his ethereal state. [See Full IMDB Page](https://www.imdb.com/title/tt32499579/?ref_=nv_sr_srsg_1_tt_7_nm_0_in_0_q_haunted%20hote)         
               
-**🎬 Review:** I binged watched season 2 in two days. I would have definitely finished in one, but I wanted to try to savor it. I thought the second season was just as good as the first. I love the characters, and it very much reminds me of Gravity Falls. I though the storylines fit, and it was fun to see more about the characters, and we even saw some more of their past. I will most likely be re-watching this again. I do wish that season 2 had 10 episodes like season 1 but alas beggers can't be choosers.              
+**🎬 Review:** I binged watched season 2 in two days. I would have definitely finished in one, but I wanted to try to savor it. I thought the second season was just as good as the first. I love the characters, and it very much reminds me of Gravity Falls. I though the storylines fit, and it was fun to see more about the characters, and we even saw some more of their past. I will most likely be re-watching this again. I do wish that season 2 had 10 episodes like season 1 but alas beggars can't be choosers.              
 
 These are for the show in its entirety.        
 **🥤 IMDB Rating:** 7.7/10      
 **✨ My Rating:** 4.5 ⭐  
 
-![Abbadon as the bellhop with the rest of the family looking on](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExZmVqNW0wcGdocTNneHhieWZydHNlMnh5eWFhMmp3cDR0cmVrd2d6ayZlcD12MV9naWZzX3NlYXJjaCZjdD1n/c0M8AClhrYGMpYySRu/giphy.gif)        
+![Abaddon as the bellhop with the rest of the family looking on](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExZmVqNW0wcGdocTNneHhieWZydHNlMnh5eWFhMmp3cDR0cmVrd2d6ayZlcD12MV9naWZzX3NlYXJjaCZjdD1n/c0M8AClhrYGMpYySRu/giphy.gif)        
 
 **🎞️Total Duration Watched:** 726 Minutes    
 
