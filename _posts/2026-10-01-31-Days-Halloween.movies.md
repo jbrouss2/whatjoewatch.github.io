@@ -345,7 +345,74 @@ These are for the show in its entirety.
 
 **🎞️Total Duration Watched:** 726 Minutes  
 
+## Day 11: October 11th
+**🎥 Movie:** Halloween II        
+**🗓️ Release Year:** 1981              
+**🍿 MPA Rating:** R              
+**⌚ Duration:** 92 Minutes    
+**📺 Where I Watched:** Prime Video        
+                    
+**📝 IMDB Description:** While Dr. Loomis hunts for Michael Myers, a traumatized Laurie is rushed to Haddonfield Memorial Hospital, and The Shape is not far behind her. [See Full IMDB Page](https://www.imdb.com/title/tt0082495/?ref_=nv_sr_srsg_0_tt_8_nm_0_in_0_q_Halloween%20II)        
+              
+**🎬 Letterboxd Review:** It’s not a slasher film if the characters don’t make the dumbest decisions ever. Lori just stands there multiple times screaming and staring instead of running. We see multiple nurses just freeze and watch as Michael Myers looks on at them.     
 
+I do enjoy the music change every time Michael comes on screen because you know most likely that someone is about to die. The music has a little bit more electric beats in this film which I honestly liked the original better. I like that Dr. Loomis threatens the Marshall, and the Marshall is so monotone about the whole thing.      
+
+I feel like the backstory they tried to add onto this film is unnecessary and convoluted. I also didn’t really pick it up until they said it out loud, and it’s easily missed. I really only know they tried to make Michael and Lori siblings by reading some trivia on the movie.      
+
+I do like that it picks up directly from the first film, and the fact that it primarily takes place in the hospital is neat. It’s a decent slasher film with a decent amount of gore, but it wasn’t over the top gore. I can’t necessarily say I’ll watch it again though… but maybe if I wanted a Halloween slasher in the background.         
+             
+**📼 Letterboxd Rating:** 3.2/5               
+**🥤 IMDB Rating:** 6.5/10      
+**✨ My Rating:** 3 ⭐    
+
+![Halloween II Opening Pumpkin](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExbGlxbXdqbXZnbjZieHpwcnE5NWN5azZpc3JpbHRjY2gydDh3aGsyMCZlcD12MV9naWZzX3NlYXJjaCZjdD1n/biJZudvEAxzAdlEj9H/giphy.gif)        
+
+**🎞️Total Duration Watched:** 818 Minutes   
+
+## Day 12: October 12th   
+I did not watch a movie 🧍‍♀️, but I did watch an episode and a half of the newest season of Scariest House in America. 😄       
+
+## Day 13: October 13th
+**🎥 Movie:** Elvira: Mistress of the Dark            
+**🗓️ Release Year:** 1988                  
+**🍿 MPA Rating:** PG-13                
+**⌚ Duration:** 96 Minutes     
+**📺 Where I Watched:** Prime Video    
+                    
+**📝 IMDB Description:** Upon arriving in a small town where Elvira has inherited a rundown mansion, the famous horror host must battle an evil uncle and townspeople who want her burned at the stake. [See Full IMDB Page](https://www.imdb.com/title/tt0095088/?ref_=nv_sr_srsg_3_tt_5_nm_3_in_0_q_elvira)        
+              
+**🎬 Letterboxd Review:** Kitschy, campy movie.     
+
+I love the little dog, and I liked seeing Elvira warm up to it. The repainting the house scene was great. It has some good one-liners. Baby Elvira with her makeup was pretty good.      
+
+I love how she finds the book and has no clue what it says. She makes one spell and sees how horrible it is then proceeds to try a different one.               
+
+Omg that one lady just stuck her whole finger in the pot at the potluck everyone just watched her do it. Yuck.   
+
+I love how they locked her dog up with her in jail. I live the throw of her high heel. Bob really turned around. I also liked how both Bob and the dog had neck braces.       
+
+The ending was a show, but I think it was fitting for her character. I thought the film overall was fun.       
+
+There was a some of the fourth wall break, but it fit well in the film.     
+ 
+“Listen sister if I want your opinion l’ll beat it out of ya.”     
+
+“My name’s Elvira, but you can call me tonight.”    
+
+“There’s nothing wrong with G rated movies as long as there is lots of sex and violence.”    
+
+“The only showroom you’ll see in Vegas will have Toyotas in it.”    
+
+“Unpleasant dreams.”        
+             
+**📼 Letterboxd Rating:** 3.8/5               
+**🥤 IMDB Rating:** 6.6/10      
+**✨ My Rating:** 3.5 ⭐  
+
+![Elvira celebrating on the Price is Right](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExbGN1a200cXQ3eWszcXVwM3AwaGxpdHRqMjk1NTdpaG85ajM0Nmd3YyZlcD12MV9naWZzX3NlYXJjaCZjdD1n/3otPoKPufjmRLOarPa/giphy.gif)         
+
+**🎞️Total Duration Watched:** 914 Minutes   
 
 ----   
 Thanks for reading, and I'd love to hear your thoughts and suggestions for films to watch this month!       
