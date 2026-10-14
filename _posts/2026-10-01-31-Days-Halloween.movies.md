@@ -371,7 +371,9 @@ I do like that it picks up directly from the first film, and the fact that it pr
 **🎞️Total Duration Watched:** 818 Minutes   
 
 ## Day 12: October 12th   
-I did not watch a movie 🧍‍♀️, but I did watch an episode and a half of the newest season of Scariest House in America. 😄       
+I did not watch a movie🧍‍♀️, but I did watch an episode and a half of the newest season of Scariest House in America. 😄        
+
+![Esther from Haunted Hotel saying "I'm trying my best."](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExNXZienpldG5peG8wbHNnNWRmaWc1Z3dpY3IydnB5a3Jxc2trcWd2ciZlcD12MV9naWZzX3NlYXJjaCZjdD1n/mbOzUrAaczN11zlDPG/giphy.gif)    
 
 ## Day 13: October 13th
 **🎥 Movie:** Elvira: Mistress of the Dark            
