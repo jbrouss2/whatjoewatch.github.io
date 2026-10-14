@@ -237,7 +237,7 @@ I thought the story was cute. We didn’t really see much of Dennis. It was focu
 **🎞️Total Duration Watched:** 420 Minutes   
 
 ## Day 8: October 8th  
-I was traveling back to Louisiana and sick, so there was no movie for me today. 🧍‍♀️    
+I was traveling back to Louisiana and sick (sinus infection if you really wanted to know), so there was no movie for me today. 🧍‍♀️    
 
 Forgive me...pls.
 
@@ -323,7 +323,8 @@ This movie wasn’t too bad. It had a decent plot idea. Yeah it was cringey and 
 
 ## Day 10: October 10th    
 ### TV Show
-This counts bc I make the rules, and a Halloween show is going to count in my books. 😈      
+This counts bc I make the rules, and a Halloween show is going to count in my books. 😈    
+           
 **🎥 Show:** Haunted Hotel    
 **📹 Seasons:** 2   
 **📺 Season Watched:** 2 
