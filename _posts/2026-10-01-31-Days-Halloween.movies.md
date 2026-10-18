@@ -44,7 +44,7 @@ So without further ado, let's get to it!
 **🎥 Movie:** Friday the 13th    
 **🗓️ Release Year:** 1980              
 **🍿 MPA Rating:** R            
-**⌚ Duration:** 95 Minutes 
+**⌚ Duration:** 95 Minutes     
 **💾 Genre:** Slasher Horror       
 **📺 Where I Watched:** Peacock   
                     
@@ -64,7 +64,7 @@ So without further ado, let's get to it!
 **🎥 Movie:** Corpse Bride      
 **🗓️ Release Year:** 2005                
 **🍿 MPA Rating:** PG            
-**⌚ Duration:** 77 Minutes 
+**⌚ Duration:** 77 Minutes      
 **💾 Genre:** Animated Romantic Fantasy       
 **📺 Where I Watched:** HBO Max         
                     
@@ -278,7 +278,7 @@ Not a Halloween one so we won't talk about it, but if you were wondering it was 
 **🎥 Movie:** Water Park Shark       
 **🗓️ Release Year:** 2026             
 **🍿 MPA Rating:** PG-13            
-**⌚ Duration:** 91 Minutes 
+**⌚ Duration:** 91 Minutes     
 **💾 Genre:** Action Comedy      
 **📺 Where I Watched:** Tubi    
                     
@@ -544,7 +544,6 @@ I love grandpa just driving into his house at the end. It’s great.
 
 ## Day 17: October 17th    
 This was a very witchy evening!       
-       
 ### 1st Movie         
 **🎥 Movie:** Fear Street: 1666        
 **🗓️ Release Year:** 2021              
