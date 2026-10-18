@@ -604,7 +604,7 @@ This movie is nostalgic. You have the mystery inc gang solving who the witch is,
 **🗓️ Release Year:** 1996              
 **🍿 MPA Rating:** R               
 **⌚ Duration:** 101 Minutes   
-**💾 Genre:** 
+**💾 Genre:** Teen Supernatural Horror    
 **📺 Where I Watched:** HBO Max     
 **👀 Seen Before:** ✅       
                     
