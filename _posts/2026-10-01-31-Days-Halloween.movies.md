@@ -14,7 +14,8 @@ My goal is to watch at least one Halloween themed movie every day this month. Th
 **🎥 Movie:**     
 **🗓️ Release Year:**            
 **🍿 MPA Rating:**          
-**⌚ Duration:**  Minutes    
+**⌚ Duration:**  Minutes   
+**💾 Genre:** 
 **📺 Where I Watched:**   
                     
 **📝 IMDB Description:** [See Full IMDB Page]()       
@@ -43,7 +44,8 @@ So without further ado, let's get to it!
 **🎥 Movie:** Friday the 13th    
 **🗓️ Release Year:** 1980              
 **🍿 MPA Rating:** R            
-**⌚ Duration:** 95 Minutes    
+**⌚ Duration:** 95 Minutes 
+**💾 Genre:** Slasher Horror       
 **📺 Where I Watched:** Peacock   
                     
 **📝 IMDB Description:** A group of teenage camp counselors attempt to re-open an abandoned summer camp with a tragic past, but they are stalked by a mysterious, relentless killer. [See Full IMDB Page](https://www.imdb.com/title/tt0080761/)     
@@ -62,7 +64,8 @@ So without further ado, let's get to it!
 **🎥 Movie:** Corpse Bride      
 **🗓️ Release Year:** 2005                
 **🍿 MPA Rating:** PG            
-**⌚ Duration:** 77 Minutes    
+**⌚ Duration:** 77 Minutes 
+**💾 Genre:** Animated Romantic Fantasy       
 **📺 Where I Watched:** HBO Max         
                     
 **📝 IMDB Description:** When a shy groom practices his wedding vows in the inadvertent presence of a deceased young woman, she rises from the grave assuming he has married her. [See Full IMDB Page](https://www.imdb.com/title/tt0121164/?ref_=nv_sr_srsg_1_tt_5_nm_3_in_0_q_corpse%20)        
@@ -103,7 +106,8 @@ Once again, I was on a trip, and I did not get a chance to watch a film this day
 **🎥 Movie:** Trick or Treat Scooby-Doo!    
 **🗓️ Release Year:** 2022              
 **🍿 MPA Rating:** G              
-**⌚ Duration:** 72 Minutes       
+**⌚ Duration:** 72 Minutes    
+**💾 Genre:** Animated Adventure      
 **📺 Where I Watched:** HBO Max      
                     
 **📝 IMDB Description:** With Coco and kitty in prison, Mystery Inc. thinks that they can finally enjoy a break. [See Full IMDB Page](https://www.imdb.com/title/tt21919270/?ref_=nv_sr_srsg_3_tt_7_nm_0_in_0_q_trick%20or%20treat)       
@@ -114,7 +118,7 @@ Once again, I was on a trip, and I did not get a chance to watch a film this day
 **🥤 IMDB Rating:** 5.8/10      
 **✨ My Rating:** 2.5 ⭐  
 
-![Scooby-Doo and Shaggy as pumpkins](/assests/images/scoobydoo.png)       
+![Scooby-Doo and Shaggy running as pumpkins](https://media.giphy.com/media/v1.Y2lkPWVjZjA1ZTQ3YWlldjVrNGd6amxuZTc2dnRkMms4dW5uZGZ0ZW1wZTlmdXRrNDJybSZlcD12MV9naWZzX3NlYXJjaCZjdD1n/oE9eiZn3CXYhYW1FrB/giphy.gif)         
 
 **🎞️Total Duration Watched:** 244 Minutes    
 
@@ -123,7 +127,8 @@ Once again, I was on a trip, and I did not get a chance to watch a film this day
 **🎥 Movie:** Hotel Transylvania 4: Transformania      
 **🗓️ Release Year:** 2022              
 **🍿 MPA Rating:** PG            
-**⌚ Duration:** 87 Minutes    
+**⌚ Duration:** 87 Minutes  
+**💾 Genre:** Animated Monster Horror Comedy       
 **📺 Where I Watched:** Prime Video    
                     
 **📝 IMDB Description:** After one experiment, Johnny turns into a monster and everyone else becomes human. Now it has to be seen whether they will be able to reverse this experiment. [See Full IMDB Page](https://www.imdb.com/title/tt9848626/?ref_=nv_sr_srsg_6_tt_8_nm_0_in_0_q_hotel%20tran)       
@@ -144,7 +149,8 @@ I thought the story was cute. We didn’t really see much of Dennis. It was focu
 **🎥 Movie:** Madagascar: A Little Wild - A Fang-tastic Halloween          
 **🗓️ Release Year:** 2020           
 **🍿 MPA Rating:** G              
-**⌚ Duration:** 24 Minutes    
+**⌚ Duration:** 24 Minutes   
+**💾 Genre:** Animated Adventure     
 **📺 Where I Watched:** Hulu     
                     
 **📝 IMDB Description:** After hearing spooky rumors about the new habitat resident- A BAT- Marty is determined to protect his friends from the newcomer. But when the bat helps him out of a tough situation, Marty learns it's better to get to know someone before judging them. [See Full IMDB Page](https://www.imdb.com/title/tt13385016/?ref_=fn_t_1)       
@@ -165,7 +171,8 @@ I thought the story was cute. We didn’t really see much of Dennis. It was focu
 **🎥 Movie:** Lone Star Shark     
 **🗓️ Release Year:** 2025              
 **🍿 MPA Rating:** TV-MA             
-**⌚ Duration:** 65 Minutes      
+**⌚ Duration:** 65 Minutes  
+**💾 Genre:** Horror Adventure         
 **📺 Where I Watched:** Tubi    
                     
 **📝 IMDB Description:** A shark terrorizes a young couple on a small Texas lake. [See Full IMDB Page](https://www.imdb.com/title/tt32242519/?ref_=nv_sr_srsg_0_tt_7_nm_1_in_0_q_lone%20star%20shark) Here is the LetterBoxd description bc tbh the IMDB one sucks: A group of virtual hunters unleash a deadly shark in a Texas lake, causing a young couple to fight for their lives during a peaceful fishing trip in a secluded cove. Also read [this](https://boxd.it/ff0shT) review for a chuckle (after you read mine of course 😤)     
@@ -251,7 +258,8 @@ Not a Halloween one so we won't talk about it, but if you were wondering it was 
 **🎥 Movie:** Sing: Thriller     
 **🗓️ Release Year:** 2024               
 **🍿 MPA Rating:** TV-PG            
-**⌚ Duration:** 14 Minutes    
+**⌚ Duration:** 14 Minutes  
+**💾 Genre:** Animated Musical Horror Comedy        
 **📺 Where I Watched:** Netflix     
                     
 **📝 IMDB Description:** The short film is based on Michael Jackson's hit song "Thriller" from his 1982 album of the same name. A theater troupe's "Thriller" performance goes awry when partygoers transform into zombie dancers after exposure to a mysterious ooze. [See Full IMDB Page](https://www.imdb.com/title/tt33999453/?ref_=fn_t_1)        
@@ -270,7 +278,8 @@ Not a Halloween one so we won't talk about it, but if you were wondering it was 
 **🎥 Movie:** Water Park Shark       
 **🗓️ Release Year:** 2026             
 **🍿 MPA Rating:** PG-13            
-**⌚ Duration:** 91 Minutes    
+**⌚ Duration:** 91 Minutes 
+**💾 Genre:** Action Comedy      
 **📺 Where I Watched:** Tubi    
                     
 **📝 IMDB Description:** When Great White Sharks storm a Cape Cod water park, a washed-up football star-turned-lifeguard and his ex-girlfriend police chief must uncover the shocking secret drawing in the ocean's biggest predators before it's too late. [See Full IMDB Page](https://www.imdb.com/title/tt38890293/?ref_=fn_t_1)          
@@ -327,11 +336,12 @@ This counts bc I make the rules, and a Halloween show is going to count in my bo
            
 **🎥 Show:** Haunted Hotel    
 **📹 Seasons:** 2   
-**📺 Season Watched:** 2 
+**📺 Season Watched:** 2      
 **🎞️ Episodes:** 8           
 **🗓️ Release Year:** 2026 (Season 2 dropped 10/09/2026)             
 **🍿 MPA Rating:** TV-14             
-**⌚ Duration:** 201 Minutes (25 for episodes 1-7 & 26 for episode 8)     
+**⌚ Duration:** 201 Minutes (25 for episodes 1-7 & 26 for episode 8)    
+**💾 Genre:** Adult Animated Comedy Horror      
 **📺 Where I Watched:** Netflix     
                     
 **📝 IMDB Description:** A single mom with two kids operates a haunted hotel, aided by her late brother's ghost who believes they can have ingenious ideas despite his ethereal state. [See Full IMDB Page](https://www.imdb.com/title/tt32499579/?ref_=nv_sr_srsg_1_tt_7_nm_0_in_0_q_haunted%20hote)         
@@ -350,7 +360,8 @@ These are for the show in its entirety.
 **🎥 Movie:** Halloween II        
 **🗓️ Release Year:** 1981              
 **🍿 MPA Rating:** R              
-**⌚ Duration:** 92 Minutes    
+**⌚ Duration:** 92 Minutes  
+**💾 Genre:** Slasher Horror    
 **📺 Where I Watched:** Prime Video        
                     
 **📝 IMDB Description:** While Dr. Loomis hunts for Michael Myers, a traumatized Laurie is rushed to Haddonfield Memorial Hospital, and The Shape is not far behind her. [See Full IMDB Page](https://www.imdb.com/title/tt0082495/?ref_=nv_sr_srsg_0_tt_8_nm_0_in_0_q_Halloween%20II)        
@@ -380,7 +391,8 @@ I did not watch a movie🧍‍♀️, but I did watch an episode and a half of t
 **🎥 Movie:** Elvira: Mistress of the Dark            
 **🗓️ Release Year:** 1988                  
 **🍿 MPA Rating:** PG-13                
-**⌚ Duration:** 96 Minutes     
+**⌚ Duration:** 96 Minutes  
+**💾 Genre:** Horror Comedy          
 **📺 Where I Watched:** Prime Video    
                     
 **📝 IMDB Description:** Upon arriving in a small town where Elvira has inherited a rundown mansion, the famous horror host must battle an evil uncle and townspeople who want her burned at the stake. [See Full IMDB Page](https://www.imdb.com/title/tt0095088/?ref_=nv_sr_srsg_3_tt_5_nm_3_in_0_q_elvira)        
@@ -417,6 +429,212 @@ There was a some of the fourth wall break, but it fit well in the film.
 
 **🎞️Total Duration Watched:** 914 Minutes   
 
+## Day 14: October 14th
+No movie for me. I caught up on episodes of Scariest House in America. I believe there are only two left, but I have to wait for them to drop.      
+
+![Retta smiling and gesturing nope](https://media.giphy.com/media/v1.Y2lkPWVjZjA1ZTQ3N3NmOHV0cnNpeWZiNGc3cmtvOTh4NHFjMGx0dnk2dGhpeGc2MWh1eiZlcD12MV9naWZzX3NlYXJjaCZjdD1n/7PXFQfzchzAG00bzDP/giphy.gif)     
+
+## Day 15: October 15th
+**🎥 Movie:** Frankenstein      
+**🗓️ Release Year:** 1931               
+**🍿 MPA Rating:** TV-PG            
+**⌚ Duration:** 70 Minutes   
+**💾 Genre:** Horror   
+**📺 Where I Watched:** Peacock    
+                    
+**📝 IMDB Description:** Doctor Henry Frankenstein is obsessed with assembling a human being from parts of several exhumed corpses and reanimating his creation. [See Full IMDB Page](https://www.imdb.com/title/tt0021884/?ref_=nv_sr_srsg_4_tt_7_nm_0_in_0_q_frankenstein)         
+              
+**🎬 Letterboxd Review:** There was so much do x don’t do y and then the next sentence was like well do you want to do y? Henry basically just told Elizabeth she was crazy, and then lo and behold Elizabeth gets attacked. I feel like the movie sort of just ended.      
+
+I can now say that I’ve officially watched the original, but I don’t think I’ll watch it again.      
+
+“Crazy am I? We’ll see if I’m crazy or not.”           
+             
+**📼 Letterboxd Rating:** 3.8/5               
+**🥤 IMDB Rating:** 7.7/10      
+**✨ My Rating:** 2 ⭐    
+
+![Henry Frankenstein saying "It's alive!"](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExOTNqc21pbWc4d3A3OXV1YzM4ejdtdngxMGhxM25wZmEwYWprYTBwcSZlcD12MV9naWZzX3NlYXJjaCZjdD1n/YEL7FJP6ed008/giphy.gif)       
+
+**🎞️Total Duration Watched:** 984 Minutes     
+
+## Day 16: October 16th
+### 1st Movie
+**🎥 Movie:** Fear Street: 1994        
+**🗓️ Release Year:** 2021              
+**🍿 MPA Rating:** R           
+**⌚ Duration:** 107 Minutes      
+**💾 Genre:** Supernatural Slasher Horror  
+**📺 Where I Watched:** Netflix      
+                    
+**📝 IMDB Description:** A circle of teenage friends accidentally encounter the ancient evil responsible for a series of brutal murders that have plagued their town for over 300 years. Welcome to Shadyside. [See Full IMDB Page](https://www.imdb.com/title/tt6566576/?ref_=fn_t_1)        
+              
+**🎬 Letterboxd Review:** The soundtrack is so fucking good. Although I will say they did play a bunch of different songs in super short succession in the beginning.     
+
+A good start to the trilogy. I really enjoyed the characters and learning about the unfortunate murder history of Shadyside. I wish we got a little more on the witch in this one, but I’m sure we’ll get some more information in the next two films.     
+
+It has a good amount of plot and slasher to it. It was a little predictable, but it did have some twists I didn’t expect. I was hooked though for sure. I’m eager to see how the rest of the trilogy progresses.           
+             
+**📼 Letterboxd Rating:** 3.2/5               
+**🥤 IMDB Rating:** 6.2/10      
+**✨ My Rating:** 3.5 ⭐  
+
+![Simon saying "Come back from that motherfucker" and Josh Saying "Holy Shit!"](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExdmZ0YzRtbXF1aHVvOWl6ajUwcXUwNTE4dHZvM2Jxb2JmdzZmeHBtdSZlcD12MV9naWZzX3NlYXJjaCZjdD1n/x09zjekjxMDNj4v8xl/giphy.gif)         
+
+**🎞️Total Duration Watched:** 1,091 Minutes   
+
+### 2nd Movie
+**🎥 Movie:** Fear Street: 1978       
+**🗓️ Release Year:** 2021              
+**🍿 MPA Rating:** R         
+**⌚ Duration:** 110 Minutes   
+**💾 Genre:** Supernatural Slasher Horror    
+**📺 Where I Watched:** Netflix      
+                    
+**📝 IMDB Description:** Shadyside, 1978. School's out for summer and the activities at Camp Nightwing are about to begin. But when another Shadysider is possessed with the urge to kill, the fun in the sun becomes a gruesome fight for survival. [See Full IMDB Page](https://www.imdb.com/title/tt9701940/?ref_=nv_sr_srsg_3_tt_8_nm_0_in_0_q_fear%20street%2019)       
+              
+**🎬 Letterboxd Review:** I really enjoyed this one! I liked the storyline, and I liked learning even more about the backstory of the camp Shadyside killer. I really liked Ziggy! I liked seeing her sister too and learning more about the sheriff who I had suspected had more of a story.     
+
+Overall I thought the film was well-made, and I liked it more than the first. The end alludes to the third and final film of the trilogy.        
+             
+**📼 Letterboxd Rating:** 3.5/5               
+**🥤 IMDB Rating:** 6.7/10      
+**✨ My Rating:** 4 ⭐  
+
+![Multiple characters saying "For Shadyside!"](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExZWxkZmVycnhubDk3N20wMXM1cnlkcW0yMHlleXNvODk5d211ZDRvMyZlcD12MV9naWZzX3NlYXJjaCZjdD1n/RWUH6w3Nzr9apVbofj/giphy.gif)        
+
+**🎞️Total Duration Watched:** 1,201 Minutes    
+
+### 3rd Movie
+**🎥 Movie:** The Lost Boys        
+**🗓️ Release Year:** 1987               
+**🍿 MPA Rating:** R            
+**⌚ Duration:** 97 Minutes    
+**💾 Genre:** Vampire Horror Comedy   
+**📺 Where I Watched:** YouTube TV   
+**👀 Seen Before:** ✅      
+                    
+**📝 IMDB Description:** When a recently divorced mother and her two teenage boys move to a coastal town to stay with her father, it doesn't take long for the brothers to realize the area is a haven for something much more sinister than party-going surfers. [See Full IMDB Page](https://www.imdb.com/title/tt0093437/?ref_=nv_sr_srsg_0_tt_8_nm_0_in_0_q_the%20lost%20boys)         
+              
+**🎬 Letterboxd Review:** Cry Little Sister is so iconic.    
+
+I just really love this movie. It has humor, romance, action, & some gore.      
+
+I love Sam hiding under the blanket and giving his input to Michael and Star’s conversation. His character is probably my favorite.     
+
+I do enjoy seeing the hints on re-watch of Max being the head vampire. I noticed this time around that he gets invited into the residence which is why all the tests failed. The frog brothers are fun.    
+
+I love grandpa just driving into his house at the end. It’s great.   
+
+“Read the tv guide and you don’t need a tv.”   
+
+“You need your sunglasses to talk on the phone?”   
+
+“Great, the blood-sucking Brady bunch.”    
+
+“One thing about living in Santa Carla I never could stomach … all the damn vampires.”         
+             
+**📼 Letterboxd Rating:** 3.7/5                 
+**🥤 IMDB Rating:** 7.2/10          
+**✨ My Rating:** 5 ⭐   
+
+![The Lost Boy Vampires](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExNDA5a3NiZ2xudXlmdWlkcnUxcTRvbGtmNmI4aDFubmFicjFleDV3dSZlcD12MV9naWZzX3NlYXJjaCZjdD1n/AvRNoKjeLCE6I/giphy.gif)        
+
+**🎞️Total Duration Watched:** 1,298 Minutes  
+
+## Day 17: October 17th    
+This was a very witchy evening!       
+       
+### 1st Movie         
+**🎥 Movie:** Fear Street: 1666        
+**🗓️ Release Year:** 2021              
+**🍿 MPA Rating:** R            
+**⌚ Duration:** 114 Minutes   
+**💾 Genre:** Supernatural Slasher Horror    
+**📺 Where I Watched:** Netflix     
+                    
+**📝 IMDB Description:** In 1666, a colonial town is gripped by a witch hunt that has deadly consequences for centuries to come, while teenagers in 1994 try to put an end to their town's curse before it is too late. [See Full IMDB Page](https://www.imdb.com/title/tt9701942/?ref_=nv_sr_srsg_7_tt_8_nm_0_in_0_q_fear%20street)        
+              
+**🎬 Letterboxd Review:** The final in the trilogy. I thought this film was pretty good. I liked the twist which spoiler is below. I think though of the series it was my least favorite per se. I did like how the series basically started and concluded in the mall. I liked the part 2 of 1994, but I think the 1666 part was interesting just not my favorite.      
+
+I like the reveal that Sarah wasn’t actually the witch. She caught Solomon who was the real one who made the deal with the devil. She lost her hand because of him. It was her friends who moved her body, and the flowers they put on her head grew into the moss all around. She showed everyone what was actually done. Sheriff Goode is Solomon’s descendent!    
+
+“You smell like an androgynous baby.”       
+             
+**📼 Letterboxd Rating:** 3.4/5                
+**🥤 IMDB Rating:** 6.6/10      
+**✨ My Rating:** 3 ⭐  
+
+![Killers going after each other in the mall](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExcGo2YzNnbHpqN2Zjc3dnMWN6d2k0cGVlZjg3MDhqOXRvdHA5bzJyNCZlcD12MV9naWZzX3NlYXJjaCZjdD1n/jupJOIekab9zRybHka/giphy.gif)       
+
+**🎞️Total Duration Watched:** 1,412 Minutes       
+
+### 2nd Movie     
+**🎥 Movie:** Scooby-Doo! and the Witch's Ghost        
+**🗓️ Release Year:** 1999              
+**🍿 MPA Rating:** G               
+**⌚ Duration:** 66 Minutes    
+**💾 Genre:** Animated Supernatural Comedy Horror         
+**📺 Where I Watched:** DVD    
+**👀 Seen Before:** ✅        
+                    
+**📝 IMDB Description:** Scooby-Doo and the Mystery Gang visit Oakhaven, Massachusetts to seek strange goings on involving a famous horror novelist and his ancestor who is rumored be a witch. [See Full IMDB Page](https://www.imdb.com/title/tt0196931/?ref_=nv_sr_srsg_0_tt_8_nm_0_in_0_q_scooby-doo%20and)        
+              
+**🎬 Letterboxd Review:** The Hex Girls are in the movie. That’s it that’s all you need.        
+
+This movie is nostalgic. You have the mystery inc gang solving who the witch is, and then when you think it’s over it keeps going!       
+
+“Rog? Rwhere?”      
+
+“Bad dreams sisters.”      
+
+“We got to go back for the book.”       
+“Book? Like can’t we just wait for the movie?”            
+             
+**📼 Letterboxd Rating:** 3.8/5               
+**🥤 IMDB Rating:** 7.3/10      
+**✨ My Rating:** 5 ⭐    
+
+![Hex Girls](https://media.giphy.com/media/3oTntr5ZoJSwd7y19H/giphy.gif)        
+
+**🎞️Total Duration Watched:** 1,478 Minutes     
+
+### 3rd Movie
+**🎥 Movie:** The Craft         
+**🗓️ Release Year:** 1996              
+**🍿 MPA Rating:** R               
+**⌚ Duration:** 101 Minutes   
+**💾 Genre:** 
+**📺 Where I Watched:** HBO Max     
+**👀 Seen Before:** ✅       
+                    
+**📝 IMDB Description:** A young girl new to a Catholic school befriends a coven of witches whom the other students either shun or fear. But when a powerful invocation goes wrong, the consequences could endanger their lives. [See Full IMDB Page](https://www.imdb.com/title/tt0115963/?ref_=nv_sr_srsg_1_tt_6_nm_1_in_0_q_the%20craft)       
+              
+**🎬 Letterboxd Review:** On rewatch, I realized the snake guy is foreshadowing to the end of the film and what could happen. It’s also foreshadowing where Nancy has the serpent when they are on the beach.       
+
+When the girls do their spells to improve their lives, we see the realization how not everything you want is meant to happen.      
+
+It’s also interesting that Sarah is the only one of the group to truly have powers. We see this at the end when the others lose theirs, but she still retains hers.    
+
+I can only associate the song "Scorn" by Portishead with this film. It fits perfectly in the scene.    
+
+“You girls watch out for the weirdos.”    
+“We are the weirdos, mister.”    
+
+“I’ve never loved anyone before but maybe my mom and this little puppy I had…”     
+
+“Whatever you send out, you get back times three.”     
+
+“Maybe. Hold your breath until I call.”       
+             
+**📼 Letterboxd Rating:** 3.6/5                   
+**🥤 IMDB Rating:** 6.5/10        
+**✨ My Rating:** 4.5 ⭐   
+
+![The girls getting off the bus and Nancy saying "We are the weirdos, mister."](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExaGM0MzJ2dG1mOG80cWI0dGdkZmc4MHZ5bGJtYW50MHF2dmo4cG5hcCZlcD12MV9naWZzX3NlYXJjaCZjdD1n/hxNMHYB1orc08/giphy.gif)       
+
+**🎞️Total Duration Watched:** 1,579 Minutes     
+
 ----   
 Thanks for reading, and I'd love to hear your thoughts and suggestions for films to watch this month!       
 
@@ -426,4 +644,4 @@ Until tomorrow,
         
 ![Elvira waving](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExemdzb3BlZ2wzcWI4eGZieDVkZHN6em53aDh2ejRyM3l4M2FhcXpteiZlcD12MV9naWZzX3NlYXJjaCZjdD1n/2kSeHoscNp9Yc9KA32/giphy.gif)             
 
-XOXO 💗 Joe    
+XOXO 💗 Joe   
