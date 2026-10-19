@@ -549,7 +549,7 @@ This was a very witchy evening!
 **🗓️ Release Year:** 2021              
 **🍿 MPA Rating:** R            
 **⌚ Duration:** 114 Minutes   
-**💾 Genre:** Supernatural Slasher Horror    
+**💾 Genre:** Supernatural Slasher Horror     
 **📺 Where I Watched:** Netflix     
                     
 **📝 IMDB Description:** In 1666, a colonial town is gripped by a witch hunt that has deadly consequences for centuries to come, while teenagers in 1994 try to put an end to their town's curse before it is too late. [See Full IMDB Page](https://www.imdb.com/title/tt9701942/?ref_=nv_sr_srsg_7_tt_8_nm_0_in_0_q_fear%20street)        
@@ -632,7 +632,121 @@ I can only associate the song "Scorn" by Portishead with this film. It fits perf
 
 ![The girls getting off the bus and Nancy saying "We are the weirdos, mister."](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExaGM0MzJ2dG1mOG80cWI0dGdkZmc4MHZ5bGJtYW50MHF2dmo4cG5hcCZlcD12MV9naWZzX3NlYXJjaCZjdD1n/hxNMHYB1orc08/giphy.gif)       
 
-**🎞️Total Duration Watched:** 1,579 Minutes     
+**🎞️Total Duration Watched:** 1,579 Minutes  
+
+## Day 18: October 18th    
+I went three for three and watched three more films. 🤪    
+### 1st Movie      
+**🎥 Movie:** A Nightmare on Elm Street      
+**🗓️ Release Year:** 1984              
+**🍿 MPA Rating:** R             
+**⌚ Duration:** 91 Minutes   
+**💾 Genre:** Supernatural Slasher Horror     
+**📺 Where I Watched:** HBO Max  
+                    
+**📝 IMDB Description:** Teenager Nancy Thompson must uncover the dark truth concealed by her parents after she and her friends become targets of the spirit of a serial killer with a bladed glove in their dreams, in which if they die, it kills them in real life. [See Full IMDB Page](https://www.imdb.com/title/tt0087800/?ref_=fn_t_1)       
+              
+**🎬 Letterboxd Review:** Just basically 1.5 hours of gaslighting Nancy that she’s crazy. I liked the premise, and the twist where Nancy figures out how to stop Kruger. I was definitely caught off-guard by the ending. I can’t believe they went on to make at least 4 more of the original franchise.       
+
+I liked this, but I can't say that I would watch it again. I think I am between a 3.5 and a 3 because I do appreciate it. I did really like Nancy though. I felt like she was really good, and she had some good ideas. Also Glen constantly falling asleep would have pissed me off too.      
+
+Kruger sticking his tongue through the phone was 😵‍💫      
+
+“You’re as nutty as a fruit cake, but I love you anyway.”             
+             
+**📼 Letterboxd Rating:** 3.7/5               
+**🥤 IMDB Rating:** 7.4/10      
+**✨ My Rating:** 3.5  ⭐    
+
+![Nancy saying "Whatever you do, don't fall asleep"](https://media.giphy.com/media/v1.Y2lkPWVjZjA1ZTQ3Z2x3aHN1eGhxbDNmN2RiOXNkMWx1bWdjeDYzcXI0Mms1dGRkZHFhbyZlcD12MV9naWZzX3NlYXJjaCZjdD1n/3otPowTZvO4u6XHaUM/giphy.gif)       
+
+**🎞️Total Duration Watched:** 1,670 Minutes     
+
+### 2nd Movie      
+**🎥 Movie:** They Live     
+**🗓️ Release Year:** 1988                 
+**🍿 MPA Rating:** R             
+**⌚ Duration:** 94 Minutes     
+**💾 Genre:** Science Fiction Action Horror    
+**📺 Where I Watched:** Prime Video  
+**👀 Seen Before:** ✅       
+                    
+**📝 IMDB Description:** They influence our decisions without us knowing it. They numb our senses without us feeling it. They control our lives without us realizing it. They live. [See Full IMDB Page](https://www.imdb.com/title/tt0096256/?ref_=fn_t_1)         
+              
+**🎬 Letterboxd Review:** An alien race making us obey and consume is a basically just modern society. It’s all about consumption and fitting in. I originally watched this in high school, and I’ve been wanting to watch it again. John Carpenter is quite talented.       
+
+Frank and Nada fight for over 5 mins like damn Frank just put on the glasses geez.      
+
+The betrayal at the end was ah, but I appreciated it.     
+
+“You, you’re okay. This one. Real fucking ugly.”     
+
+“I have come here to chew bubblegum and kick ass, and I’m all out of bubblegum.”     
+
+“Mama don’t like tattletales.”     
+
+“You’re fighting the forces of evil that none of us can see without sunglasses.”          
+             
+**📼 Letterboxd Rating:** 3.7/5                    
+**🥤 IMDB Rating:** 7.2/10        
+**✨ My Rating:** 3.5 ⭐    
+
+![Nada putting on the glasses and seeing the sign that says Obey](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExYjJ0YWJ3MTlrdGx4dTZocmtncm9mOTJiN3k5M3F1enFwajRrYzF0YyZlcD12MV9naWZzX3NlYXJjaCZjdD1n/zg5STezidLaZW/giphy.gif)       
+
+**🎞️Total Duration Watched:** 1,764 Minutes      
+
+### 3rd Movie     
+**🎥 Movie:** Scream    
+**🗓️ Release Year:** 1996               
+**🍿 MPA Rating:** R              
+**⌚ Duration:** 111 Minutes    
+**💾 Genre:** Slasher Horror      
+**📺 Where I Watched:** Hulu   
+**👀 Seen Before:** ✅       
+                    
+**📝 IMDB Description:** In the small town of Woodsboro, California, a masked killer known as Ghostface begins murdering high school students, and a group of friends must use their knowledge of horror movies to unmask the killer. [See Full IMDB Page](https://www.imdb.com/title/tt0117571/?ref_=fn_t_1)       
+              
+**🎬 Letterboxd Review:** This is one of my favorite movies. It’s just so fucking good, and it has so many good quotes. I love the plot, I love the twists, and I love the references to other films. I think every time I watch I notice more clues of who Ghostface is.     
+
+“When I say hurry, please interrupt that as move your big tub of lard ass, now!”     
+
+“He’s my superior!”     
+“A janitor is your superior.”     
+
+“Don’t freak yourself out Sid. You’re starting to sound like some Wes Carpenter flick.”      
+
+“As if. That’s all I’m saying. As if.”     
+“Oh really Alicia?”    
+“As if”     
+
+“Do you know what that constellation is?”     
+“No, what it is?”     
+“I don’t know that’s why I was asking you.”     
+
+“Watch a few movies, take a few notes, it was funnn.”     
+
+“Movies don’t create psychos, movies make psychos more creative.”     
+
+“I’m feeling a little woozy here!”    
+
+“I thought she was dead.”    
+“She looked dead, man. She still does.”    
+
+“Should I let the machine get it?”     
+
+“Peer pressure. I’m far too sensitive.”     
+
+“Did you really call the police?”     
+“You bet your sorry ass I did.”     
+“My mom and dad are gonna be so mad at me.”          
+             
+**📼 Letterboxd Rating:** 4.0/5                 
+**🥤 IMDB Rating:** 7.5/10       
+**✨ My Rating:** 5 ⭐   
+
+![Tatum saying "Please don't kill me Mr. Ghostface. I wanna be in the sequel!"](https://media.giphy.com/media/v1.Y2lkPWVjZjA1ZTQ3dW85MnlpaWtzMnJ5N2djcjc0cW5vb3dtZTMxd2ZxYXh0MjNwNnV5biZlcD12MV9naWZzX3NlYXJjaCZjdD1n/xT9KVe8ctR6MVLUuLm/giphy.gif)       
+
+**🎞️Total Duration Watched:** 1,875 Minutes      
 
 ----   
 Thanks for reading, and I'd love to hear your thoughts and suggestions for films to watch this month!       
