@@ -748,6 +748,101 @@ The betrayal at the end was ah, but I appreciated it.
 
 **🎞️Total Duration Watched:** 1,875 Minutes      
 
+## Day 19: October 19th
+### 1st Movie    
+**🎥 Movie:** Carrie        
+**🗓️ Release Year:** 1976               
+**🍿 MPA Rating:** R             
+**⌚ Duration:** 98 Minutes    
+**💾 Genre:** Horror     
+**📺 Where I Watched:** HBO Max      
+                    
+**📝 IMDB Description:** A social misfit with psychic powers turns prom night into Hell on Earth. [See Full IMDB Page](https://www.imdb.com/title/tt0074285/?ref_=fn_t_2)       
+              
+**🎬 Letterboxd Review:** I think this movie was really well-made. I feel like the characters were really well-introduced. I really liked Tommy, and he genuinely cared about Carrie.      
+
+The bullies are crazy. They literally went and killed a pig to get pig’s blood to pour on Carrie.      
+
+I was sad to see Miss Collins die. I think she did genuinely want Carrie to feel pretty and included. She suspected that Tommy and Sue were plotting something, but she eventually came to realize that they were genuine.     
+
+The actress who played Carrie’s mom was very good. She definitely was very believable, and you did genuinely feel bad for Carrie.     
+
+Also there was so much nudity in this female. More than I expected for sure.      
+
+“You too, Chris. And spit out that gum.”     
+“Where’ll I put it Miss Collins?”     
+“You can choke on it for all I care. Just get it out of your mouth.”      
+
+“Take it easy.”    
+“I’ll take it anyway I can get it.”         
+             
+**📼 Letterboxd Rating:** 3.8/5               
+**🥤 IMDB Rating:** 7.4/10       
+**✨ My Rating:** 4 ⭐     
+
+![Carrie covered in blood at prom](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExYXczMDFucmNod3F5Yzd0enY2Z3VmYWF0ZGxydmY1OWJ3OXFldjFubCZlcD12MV9naWZzX3NlYXJjaCZjdD1n/eYCJMg82UuP1aIZ4BW/giphy.gif)         
+
+**🎞️Total Duration Watched:** 1,973 Minutes      
+
+### 2nd Movie   
+**🎥 Movie:** Heathers       
+**🗓️ Release Year:** 1989               
+**🍿 MPA Rating:** R            
+**⌚ Duration:** 103 Minutes    
+**💾 Genre:** Satirical Teen Dark Comedy     
+**📺 Where I Watched:** Prime Video     
+                    
+**📝 IMDB Description:** At Westerburg High where cliques rule, jocks dominate and all the popular girls are named Heather, it's going to take a Veronica and mysterious new kid to give teen angst a body count. [See Full IMDB Page](https://www.imdb.com/title/tt0097493/?ref_=nv_sr_srsg_0_tt_6_nm_2_in_0_q_heathers)       
+              
+**🎬 Letterboxd Review:** I quote and watch this movie way too much for me to give it just 4 stars. It’s definitely worth more than that. I’ll give it half a star more.     
+
+There are so many good lines in the film. Winona Ryder and Christian Slater are phenomenal.     
+
+“Fuck me gently with a chainsaw.”     
+
+“Greetings and salutations.”     
+
+“Did you have a brain tumor for breakfast?”    
+
+“What’s your damage?”    
+
+"Lick it up baby, lick it up."      
+
+“You call me when the shuttle lands.”   
+
+“Oh, the humanity.”    
+
+“Our love is God, let’s go get a slushy.”    
+
+“You miss him completely?”    
+“Yeah, but it was worth it to see the look on his face.”    
+
+“Dear diary, my teen-angst bullshit now has a body count… am I going to prom or am I going to hell?”    
+
+“Judge told him to slurp shit and die.”    
+
+“Get off of my bed you fucking psycho.”    
+
+“You say tomato I say tomato.”    
+
+“That knife is filthy.”   
+“What do you think I’m going to do with it? Take out her fucking tonsils?”    
+
+“What does she want? A written invitation.”     
+
+“Hey mom, why so tense?”    
+
+“Veronica you look like hell.”    
+“Thanks I just got back.”        
+             
+**📼 Letterboxd Rating:** 3.8/5               
+**🥤 IMDB Rating:** 7.1/10      
+**✨ My Rating:** 4.5 ⭐  
+
+![JD asking "Are you a Heather?" and Veronica saying "No I am a Veronica"](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExZzV3anJ2d2hhanpzazd3Mnlnb2hqOWlkc3Frd3RvMHV2anAxMnVkdiZlcD12MV9naWZzX3NlYXJjaCZjdD1n/RCgKXtGJPE7rXsIQGz/giphy.gif)       
+
+**🎞️Total Duration Watched:** 2,076 Minutes    
+
 ----   
 Thanks for reading, and I'd love to hear your thoughts and suggestions for films to watch this month!       
 
