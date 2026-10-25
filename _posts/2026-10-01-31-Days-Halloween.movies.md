@@ -846,7 +846,7 @@ There are so many good lines in the film. Winona Ryder and Christian Slater are 
 ## Day 20: October 20th      
 I watched the latest episode of Scariest House in America. I have to say most of these people are into oddities and curiosities which leads them to buy these houses. One guy straight up had multiple family members die because of his house. Um no absolutely not. Also they always have these creepy ass dolls. No thank you. It does also irk me when people buy these homes and have owned them for 20+ years, but they have made literally no changes and there are literal holes in the floor like what??        
 
-![Retta saying "Weird. Alright."](https://media.giphy.com/media/v1.Y2lkPWVjZjA1ZTQ3ejFpb3UxbXluYXppeGUwM3N5em8wM293MDc5aGNmeXd0OHR4MWwzbyZlcD12MV9naWZzX3NlYXJjaCZjdD1n/5YNvzuXXmsqdlyunrC/giphy.gif)       
+![Retta making scared and confused face](https://media.giphy.com/media/v1.Y2lkPWVjZjA1ZTQ3djRmeDB3aXBsb3Y3N3Nzajd3cnFidGpvMTE0ZDNoYXhjOHJiY2h5ZiZlcD12MV9naWZzX3NlYXJjaCZjdD1n/qaaM8j3pzVP7UnafqM/giphy.gif)         
 
 ## Day 21: October 21st    
 **🎥 Movie:** The Spiderwick Chronicles         
