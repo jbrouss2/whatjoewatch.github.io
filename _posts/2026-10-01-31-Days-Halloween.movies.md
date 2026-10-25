@@ -901,6 +901,9 @@ I watched the latest episode of Scariest House in America. I have to say most of
 ## Day 22: October 22nd     
 I had an eye appointment, and a relatively screen-free evening so no movie for me tonight.    
 
+My bad, please cut me some slack          
+![Dracula as a bat from Hotely Transylvania making sad face](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExMjFta2tma3YzOXQ2MmY5dHZuc3VoZGJ3bGZsaTV2b2l0eHlqb2YwcSZlcD12MV9naWZzX3NlYXJjaCZjdD1n/H7svEbrbvr9AI/giphy.gif)     
+
 ## Day 23: October 23rd   
 **🎥 Movie:** The Wolf Man         
 **🗓️ Release Year:** 1941              
