@@ -843,6 +843,152 @@ There are so many good lines in the film. Winona Ryder and Christian Slater are 
 
 **🎞️Total Duration Watched:** 2,076 Minutes    
 
+## Day 20: October 20th      
+I watched the latest episode of Scariest House in America. I have to say most of these people are into oddities and curiosities which leads them to buy these houses. One guy straight up had multiple family members die because of his house. Um no absolutely not. Also they always have these creepy ass dolls. No thank you. It does also irk me when people buy these homes and have owned them for 20+ years, but they have made literally no changes and there are literal holes in the floor like what??        
+
+![Retta saying "Weird. Alright."](https://media.giphy.com/media/v1.Y2lkPWVjZjA1ZTQ3ejFpb3UxbXluYXppeGUwM3N5em8wM293MDc5aGNmeXd0OHR4MWwzbyZlcD12MV9naWZzX3NlYXJjaCZjdD1n/5YNvzuXXmsqdlyunrC/giphy.gif)       
+
+## Day 21: October 21st    
+**🎥 Movie:** The Spiderwick Chronicles         
+**🗓️ Release Year:** 2008                   
+**🍿 MPA Rating:** PG             
+**⌚ Duration:** 96 Minutes     
+**💾 Genre:** Action Adevnture Fantasy  
+**📺 Where I Watched:** Peacock      
+                    
+**📝 IMDB Description:** Upon moving into the run-down Spiderwick Estate with their mother, twin brothers Jared and Simon Grace, along with their sister Mallory, find themselves pulled into an alternate world full of faeries and other creatures. [See Full IMDB Page](https://www.imdb.com/title/tt0416236/?ref_=nv_sr_srsg_0_tt_8_nm_0_in_0_q_the%20spiderwick)         
+              
+**🎬 Letterboxd Review:** I can’t say how many times I watched this movie growing up because I genuinely do not know. It was one of the movies I got for my nana’s car, and I swear I watched it so much.       
+
+1. Why do people in movies always pull up to old houses at night?
+2. I love the see some stuff on the windows, and they decide to lick it like what. 
+3. How’d they have dinner already made in that short time? It looks like spaghetti, but she didn’t use the water until after the food was ready. 
+4. Of course the deadbeat dad who can’t put in any effort to see his children 
+5. Where was all of their luggage?
+6. Jared just catching strays left and right 
+7. Jared bringing the book with them when he knows how much the goblins want it is crazy 
+8. I like Simon at home making batches of tomato mix to fight the goblins
+9. It was very sweet of Jared to pick flowers for Lucinda
+10. I love that Lucinda is surrounded by her little flower fairies 
+11. Of course he was able to get the charm for protective circle page
+12. The mom should have just been honest about their dad. 
+13. They just left the car on
+14. I love Thimbletack and Hogsqueal
+15. I love how they just thought a tomato sauce bomb would kill the most powerful goblin
+16.  I thought the circle window didn’t open, but it magically opened when Jared needed to go through it 
+17. “You sent it right to me! I ate it! That’s team work.” Amazing work to defeat the villain
+18. So did insurance cover the damages or…?
+19. “I was so captivated by all of the magical creatures that I forgot about the one I have.” I did really like Arthur and Lucy’s reunion. Damn though they just put her bag in her room and now she’s leaving. 
+20. Overall a good film. It takes place in mostly one day which is neat. I wish there was a little more story-telling and seeing the magical world. I also wish there was a little bit more action in the final big fight scene. Also props to Freddie Highmore for playing twins. I think he did a good job giving each twin a different vibe and feel. 
+
+“I took your medal, hid it here, and re-plastered the wall.”       
+
+“Did I hit somebody?”       
+“Yes, thank you.”     
+
+“He’s not a beast. He’s a bird. A big-boned bird.”    
+
+“You’re 125 years old. Your life is over.”          
+             
+**📼 Letterboxd Rating:** 3.4/5                 
+**🥤 IMDB Rating:** 6.5/10       
+**✨ My Rating:** 3.5 ⭐     
+
+![Spiderwick Chronicles Poster](/assests/images/SpiderwickChronicles.png)        
+
+**🎞️Total Duration Watched:** 2,172 Minutes     
+      
+## Day 22: October 22nd     
+I had an eye appointment, and a relatively screen-free evening so no movie for me tonight.    
+
+## Day 23: October 23rd   
+**🎥 Movie:** The Wolf Man         
+**🗓️ Release Year:** 1941              
+**🍿 MPA Rating:** Approved            
+**⌚ Duration:** 70 Minutes     
+**💾 Genre:** American Gothic Horror    
+**📺 Where I Watched:** Peacock     
+                    
+**📝 IMDB Description:** Upon his return to his father's estate, aristocrat Larry Talbot meets a beautiful woman, attends a mystical carnival and uncovers a horrifying curse. [See Full IMDB Page](https://www.imdb.com/title/tt0034398/?ref_=fn_t_1)        
+              
+**🎬 Letterboxd Review:** Um creepy af watching her through the window via telescope and then going in and being like I’m looking for earrings like the ones you have up in your room. He buys a club/cane with a wolf head and pentagram on it. She keeps telling him no, but he doesn’t get the hint. She brings another woman along with them, and he still doesn’t get it. They stop and pick wolfsbane on their way to the gypsy carnival. No one else is there but a few gypsies.        
+
+The gypsy man starts reading her fortune and freaks out when he sees the pentagram aka the sign of the wolf on her hand in her fortune. She ends up getting killed, but Larry steps in and manages to the wolf with his bare hands and his wolf club. He does get bit in the process.           
+
+Gwen gets blamed for Jenny’s death which is wild. The woman rush into the antique shot and tell her father that his daughter is horrible.          
+
+The gypsy gives Larry a charm to protect himself, but he gives it to Gwen instead. Then he kisses her even though he knows she’s engaged.          
+
+He quickly morphs into a werewolf. We got way too many shots looking at his toes. Then he walks on his tiptoes and sees a man digging a grave and kills him.           
+
+He wakes up the next morning and sees all the dirty and hair in his room. His dad tells him he doesn’t think man can become wolf. It’s all in Larry’s mind. They go to church, and we see Jenny’s mom gossiping. She says murders didn’t happen until Larry came to town, but also didn’t the gypsies arrive at the same time??            
+
+They have some people investigating the murders. The doctor says they need to send Larry to the psych hospital. He says he needs shock therapy or more. What a jump geez. Larry was just asking good questions and pointing out what if it isn’t in one’s mind. They set traps to catch the werewolf. I don’t think Larry is there though so he doesn’t know.            
+
+That night Larry of course steps in a trap. The gypsy woman finds him and recites a poem which turns him back human. He runs into the guys hunting for him and lies and says he’s hunting too.         
+
+Larry goes to Gwen’s house and throws rocks at her window. She invites him in. He tells her he must leave and for some reason she insists she goes with him. She says she’ll be safe because she has the charm. He says he has killed two people. He sees a pentagram on her hand and freaks out. She tells her father she’s going with Larry. Larry freaks out and runs out of the store and home.          
+
+Larry tells his father he killed a werewolf, Bella the gypsy. He got bit and shows his father the scar that’s a pentagram. His dad is like nah that can be caused by lots of animals. Um no sir it cannot. Then he tells his father he saw the pentagram on Gwen’s hand. He says the gypsy woman has told him this stuff. His dad says she’s manipulated him. The men didn’t catch anything in their traps and now they are hunting the wolf.     
+
+Larry’s dad straps him to a chair in a locked room with locked windows so that he can’t attack anyone. He wants him to see that it is all in his mind. Larry’s dad just leaves him in the room. He tells his dad to take his cane before he goes, and he does.         
+
+The gypsy woman talks to Larry’s father. He confronts her. As they’re speaking he hears gunshots. Gwen talks to the gypsy woman who tells her not to run in the woods. Gwen insists she must find Larry. The gypsy woman tells her to come with her or Larry will find her.         
+
+Gwen runs off into the woods and of course Larry spots her and follows. He attacks Gwen. He tries to attack his father who betas him with the wolf cane and kills him.          
+
+The gypsy woman appears again and recites the poem that changes Larry back human. His father realizes that he his own son was telling the truth and now he’s dead.         
+
+They say the wolf attacked Gwen, but it seems Larry came to the rescue. Little do they know.           
+
+I think I like this one more than Frankenstein. It seems more well-rounded. The characters did make dumb decisions, but it didn’t seem as bad.         
+
+“Whoever is bitten by a werewolf and lives becomes a werewolf himself.”             
+             
+**📼 Letterboxd Rating:** 3.5/5                 
+**🥤 IMDB Rating:** 7.2/10       
+**✨ My Rating:** 3 ⭐        
+
+![Larry peeking around the tree in werewolf form](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExMWQ3OWE0dnZ4NDN3aTQ1MWViNnVyaWJhY2EzNnh4YW11bnY3enlwZyZlcD12MV9naWZzX3NlYXJjaCZjdD1n/IjpBA23d1UKmkBPL0h/giphy.gif)          
+
+**🎞️Total Duration Watched:** 2,242 Minutes      
+
+## Day 24: October 24th   
+**🎥 Movie:** Bats           
+**🗓️ Release Year:** 1999              
+**🍿 MPA Rating:** PG-13            
+**⌚ Duration:** 91 Minutes    
+**💾 Genre:** Sci-Fi Horror   
+**📺 Where I Watched:** Prime Video      
+                    
+**📝 IMDB Description:** Genetically mutated bats escape and it's up to a bat expert and the local sheriff to stop them. [See Full IMDB Page](https://www.imdb.com/title/tt0200469/?ref_=fn_t_1)         
+              
+**🎬 Letterboxd Review:** This wasn’t bad. The bats were a little silly looking. Kinda reminded me of Gremlins/Critters. I figured the scientist was going to be bad. I did like seeing him be destroyed by his creation. I liked Sheila and the sheriff. She did make some dumb decisions like go in the movie theater ticket booth that has a hole, run out in the street, and be a bad shot.       
+
+I’m sorry but if they said there were killer bats and told me to stay inside I would ✨. RIP Hodge. He sacrificed himself for Sheila.      
+
+Jimmy made the movie. I loved him. He was so funny and witty.     
+
+I did like the bat popup at the end and them it over.     
+
+“Who are you? Why are you landing that thing here.”    
+“CDC Atlanta.”      
+“I never touched that girl.”    
+
+“You can save that panic and stuff for later.”     
+
+“Sheila I’ve been doing some thinking… this is fucked up.”    
+
+“Clip their wings? Man, could you just shoot their damn heads off? And don’t miss.”        
+             
+**📼 Letterboxd Rating:** 2.3/5                
+**🥤 IMDB Rating:** 4.2/10       
+**✨ My Rating:** 3 ⭐    
+
+![Bats Poster](/assests/images/BatsPoster.png)    
+
+**🎞️Total Duration Watched:** 2,333 Minutes     
+
 ----   
 Thanks for reading, and I'd love to hear your thoughts and suggestions for films to watch this month!       
 
