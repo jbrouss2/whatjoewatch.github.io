@@ -1229,7 +1229,7 @@ We did see IT in other forms which I did think was neat. IT as a large animal wa
 **🎞️Total Duration Watched:** 3,035 Minutes     
 
 ----   
-Thanks for reading, and I'd love to hear your thoughts and suggestions for films to watch this month!       
+Thanks for reading, and I hope you enjoyed following along!        
 
 Happy watching! 🍿   
 
