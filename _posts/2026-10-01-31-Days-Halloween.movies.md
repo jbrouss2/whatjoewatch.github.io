@@ -791,6 +791,7 @@ Also there was so much nudity in this female. More than I expected for sure.
 **⌚ Duration:** 103 Minutes    
 **💾 Genre:** Satirical Teen Dark Comedy     
 **📺 Where I Watched:** Prime Video     
+**👀 Seen Before:** ✅       
                     
 **📝 IMDB Description:** At Westerburg High where cliques rule, jocks dominate and all the popular girls are named Heather, it's going to take a Veronica and mysterious new kid to give teen angst a body count. [See Full IMDB Page](https://www.imdb.com/title/tt0097493/?ref_=nv_sr_srsg_0_tt_6_nm_2_in_0_q_heathers)       
               
@@ -854,7 +855,8 @@ I watched the latest episode of Scariest House in America. I have to say most of
 **🍿 MPA Rating:** PG             
 **⌚ Duration:** 96 Minutes     
 **💾 Genre:** Action Adevnture Fantasy  
-**📺 Where I Watched:** Peacock      
+**📺 Where I Watched:** Peacock  
+**👀 Seen Before:** ✅       
                     
 **📝 IMDB Description:** Upon moving into the run-down Spiderwick Estate with their mother, twin brothers Jared and Simon Grace, along with their sister Mallory, find themselves pulled into an alternate world full of faeries and other creatures. [See Full IMDB Page](https://www.imdb.com/title/tt0416236/?ref_=nv_sr_srsg_0_tt_8_nm_0_in_0_q_the%20spiderwick)         
               
@@ -991,6 +993,240 @@ I did like the bat popup at the end and them it over.
 ![Bats Poster](/assests/images/BatsPoster.png)    
 
 **🎞️Total Duration Watched:** 2,333 Minutes     
+
+## Day 25: October 25th   
+### TV Show
+Yes, another Halloween themed show! 
+           
+**🎥 Show:** Scariest House in America     
+**📹 Seasons:** 3      
+**📺 Season Watched:** 3          
+**🎞️ Episodes:** 6                
+**🗓️ Release Year:** 2026               
+**🍿 MPA Rating:** TV-PG                
+**⌚ Duration:** 264 mins (44 mins each)        
+**💾 Genre:** HGTV Reality             
+**📺 Where I Watched:** HBO Max        
+                    
+**📝 IMDB Description:** Follows Retta as she tours eerie and terrifying houses across the United States, and one homeowner will receive a $150,000 renovation by Alison Victoria. [See Full IMDB Page](https://www.imdb.com/title/tt33305795/?ref_=nv_sr_srsg_0_tt_7_nm_1_in_0_q_scariest%20house%20)         
+              
+**🎬 Review:** I love Retta. She is hilarious. I feel like this season was a little meh. There were some cool houses, but the ones I thought would win didn't. I know it is based on how much they could actually do with the money. For example, one house had no plumbing so with their budget. I was a little surprised when they picked the overall winner. It was not one of the three houses that I thought it would be. I feel like the renovation was nice, but it stripped the character out of the home. I wish they had kept some of the stuff that made it the home and made it unique.          
+
+These are for the show in its entirety.        
+**🥤 IMDB Rating:** 7.1/10      
+**✨ My Rating:** 3.5 ⭐  
+
+![Retta looking disappointed](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExaHM0cThvcnlvcDVnZHNqb3pnN2I2ZzNwZWVyMHNkMWYzdjRvNmx2ayZlcD12MV9naWZzX3NlYXJjaCZjdD1n/rD8pHmRqhIEhMAXaK3/giphy.gif)        
+
+**🎞️Total Duration Watched:** 2,597 Minutes    
+
+### Movie
+**🎥 Movie:** The Monster Squad          
+**🗓️ Release Year:** 1987              
+**🍿 MPA Rating:** PG-13             
+**⌚ Duration:** 82 Minutes   
+**💾 Genre:** Monster Horror Action Comedy       
+**📺 Where I Watched:** Prime Video  
+                    
+**📝 IMDB Description:** A group of 12-year-olds form a Universal Monsters fan club called Monster Squad and attempt to save their hometown from Count Dracula and his fellow monsters when they show up for real. [See Full IMDB Page](https://www.imdb.com/title/tt0093560/?ref_=nv_sr_srsg_0_tt_8_nm_0_in_0_q_the%20monster%20squad)       
+              
+**🎬 Letterboxd Review:** Fun, 80s monster movie. I enjoyed it! It had some good humor, some action, some mystery, and some friendship. I love a good bike riding scene.      
+
+I loved that Frankenstein ended up befriending them. Phoebe was adorable. I thought the old German guy was going to be bad, but he ended up not being bad. Dracula was crazy. He called a 5 year old a bitch. He blew up their tree house and a car. I did not like when he was full-sized human but with a bat body.      
+
+I liked the parents that actually cared in this. They tried to go help their kids.      
+
+It did remind me of the Goonies a little bit. Definitely some of the lines and whatnot would not slide today.     
+
+“How does the dog get up here anyway?”     
+
+“Where am I supposed to find silver bullets? K-mart?”     
+ 
+“Scary house, real monsters, us 12 years old remember?”     
+
+“If we pull this off, I’m gonna shit.”     
+
+“Like really religious Sean. Like why don’t we just go over and do it in Burger King?”     
+
+“He’s not a virgin you stupid!”    
+“Did you ask him?”    
+
+“She can’t read. She’s 5 years old.”     
+“I’ll help her.”         
+             
+**📼 Letterboxd Rating:** 3.4/5               
+**🥤 IMDB Rating:** 6.9/10      
+**✨ My Rating:** 3.5 ⭐  
+
+![The Kids trying not to blow away](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExb21ybnhoZ2N2bWRjMTc3enRldTRhODVpMnBrZ21raWRmMjF6N3pjMSZlcD12MV9naWZzX3NlYXJjaCZjdD1n/A5DXlZrNBUJri/giphy.gif)        
+
+**🎞️Total Duration Watched:** 2,679 Minutes    
+
+## Day 26: October 26th
+**🎥 Movie:** Halloweentown       
+**🗓️ Release Year:** 1998               
+**🍿 MPA Rating:** PG             
+**⌚ Duration:** 84 Minutes     
+**💾 Genre:** Fantasy Comedy   
+**📺 Where I Watched:** Hulu     
+**👀 Seen Before:** ✅       
+                    
+**📝 IMDB Description:** When a young girl living with her secret witch mother learns she too is a witch, she must help her witch grandmother save Halloweentown from evil forces. [See Full IMDB Page](https://www.imdb.com/title/tt0173886/?ref_=fn_t_1)       
+              
+**🎬 Letterboxd Review:** This wasn’t bad. Marnie did annoy me quite a bit and so did the mom. I really liked Sophie and the brother though. I liked the twist of the bad guy. It had some funny lines. I wish we saw more of Halloweentown.       
+
+“I think it proves that insanity is hereditary.”      
+  
+“Well it’s locked. Better head home.”     
+
+“It sounded pretty, so I made up a song for it.”          
+             
+**📼 Letterboxd Rating:** 3.2/5               
+**🥤 IMDB Rating:** 6.5/10       
+**✨ My Rating:** 2.5 ⭐   
+
+![Marnie and her grandma riding the broom](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExc2Z5ZHkwMHRiMGUwcWpsdHB2MHF1amlrMzc4cGdpc2ViaTdlYjlhNiZlcD12MV9naWZzX3NlYXJjaCZjdD1n/3otPoxuRjOB9fiRHoI/giphy.gif)         
+
+**🎞️Total Duration Watched:** 2,763 Minutes    
+
+## Day 27: October 27th    
+**🎥 Movie:** Monsters University       
+**🗓️ Release Year:** 2013                
+**🍿 MPA Rating:** PG             
+**⌚ Duration:** 104 Minutes   
+**💾 Genre:** Adventure Comedy Animation    
+**📺 Where I Watched:** Hulu      
+**👀 Seen Before:** ✅       
+                    
+**📝 IMDB Description:** A look at the relationship between Mike Wazowski and James P. "Sully" Sullivan during their days at Monsters University, when they weren't necessarily the best of friends. [See Full IMDB Page](https://www.imdb.com/title/tt1453405/?ref_=nv_sr_srsg_3_tt_7_nm_0_in_1_q_monsters%20univeris)        
+              
+**🎬 Letterboxd Review:** I love baby Mike Wazowski. We meet Randall before he went bad!       
+
+I liked this movie! It was fun seeing the relationship between Sully and Mike form. I really enjoyed the OK brothers. I also loved the end credits where it gave nods to the original movie.       
+
+“That’s okay when I was on the bus I found a nickel! I wish I had pockets.”      
+
+“Have fun kids! I’ll just be here listening to my tunes.”      
+*Heavy metal starts blasting*     
+
+“Thanks I cannot get down.”           
+             
+**📼 Letterboxd Rating:** 3.5/5               
+**🥤 IMDB Rating:** 7.2/10      
+**✨ My Rating:** 4 ⭐  
+
+![Baby Mike Wazowski with his MU hat](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExMzI0OXZzNDAxYjdyZHRiOXlhMWd2eW9rcm12amZybGl3N2RkY3RiYyZlcD12MV9naWZzX3NlYXJjaCZjdD1n/YgqfVwvfpAuOs/giphy.gif)       
+
+**🎞️Total Duration Watched:** 2,777 Minutes     
+
+## Day 28: October 28th    
+**🎥 Movie:** Creature from the Black Lagoon      
+**🗓️ Release Year:** 1954               
+**🍿 MPA Rating:** G             
+**⌚ Duration:** 79 Minutes    
+**💾 Genre:** Sci-Fi Horror   
+**📺 Where I Watched:** Prime Video     
+                    
+**📝 IMDB Description:** Dr. David Reed leads an Amazon expedition to recover ancient fossils and must protect his colleague Kay Lawrence when a prehistoric amphibian stalks their boat and claims the lagoon as its domain. [See Full IMDB Page](https://www.imdb.com/title/tt0046876/?ref_=nv_sr_srsg_0_tt_8_nm_0_in_0_q_creature%20from%20th)          
+              
+**🎬 Letterboxd Review:** I actually really enjoyed this one. We love a woman in STEM. Kay did make some dumb choices, but it do be like that. I liked David. Fuck Mark.     
+
+RIP to the one doctor who got attacked, and they had him wrapped up and in bed but then the creature reached through the window and he couldn't do anything. Thankfully he lived as far as we know because David slammed the window shut.     
+
+“I tried to shoot, but I miss.”           
+             
+**📼 Letterboxd Rating:** 3.5/5               
+**🥤 IMDB Rating:** 6.9/10      
+**✨ My Rating:** 3.5 ⭐  
+
+![Creature walking on the boat](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExYnVtMHN4dHhxc2F5dGdncWc1c3hxbWF5YWhtajd3MGt5MHZydnF0cSZlcD12MV9naWZzX3NlYXJjaCZjdD1n/ttdb9OZKZdlrW/giphy.gif)       
+
+**🎞️Total Duration Watched:** 2,856 Minutes     
+
+## Day 29: October 29th   
+I drove back to Louisiana, and I could not decide what I wanted to watch. Oops.    
+
+Sorry, my bad.     
+
+![Agnes saying "Sorry"](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExcDI0eDQ2Yzh6dDhneW1lZWx2dWZlNWxmc25la2Zicm5lemYxMTNoZiZlcD12MV9naWZzX3NlYXJjaCZjdD1n/fV8iuSEwLQ6005diSh/giphy.gif)
+
+## Day 30: October 30th    
+**🎥 Movie:** It's the Great Pumpkin, Charlie Brown        
+**🗓️ Release Year:** 1966              
+**🍿 MPA Rating:** Approved              
+**⌚ Duration:** 25 Minutes     
+**💾 Genre:** Animated Halloween    
+**📺 Where I Watched:** Apple TV     
+**👀 Seen Before:** ✅       
+                    
+**📝 IMDB Description:** The Peanuts gang celebrates Halloween while Linus waits for the Great Pumpkin. [See Full IMDB Page](https://www.imdb.com/title/tt0060550/?ref_=nv_sr_srsg_0_tt_8_nm_0_in_0_q_it%27s%20the%20great)       
+              
+**🎬 Letterboxd Review:** Poor Linus. All he wanted was to see the great pumpkin. Lucy is so mean omg, but she did bring Linus back home after he fell asleep which was nice. Charlie Brown just constantly is getting bullied. He knows Lucy is going to pick up the ball, but he believes she won’t. He’ll never learn.     
+
+“You blockhead!”        
+
+“I got a rock.”           
+             
+**📼 Letterboxd Rating:** 4.2/5               
+**🥤 IMDB Rating:** 8.1/10      
+**✨ My Rating:** 4 ⭐  
+
+![Linus and Sally seeing Snoopy at the pumpkin patch](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExMWY4N3dpYXQ3Zzlqc214bGU4OHczamVpNGdjemxnaGxsbnRrcG1kaiZlcD12MV9naWZzX3NlYXJjaCZjdD1n/i2pYQ1RLaWzrW/giphy.gif)        
+
+**🎞️Total Duration Watched:** 2,881 Minutes    
+
+## Day 31: October 31st  
+This one is a little different because it was a bonus episode of IT: Welcome to Derry, but it exists as its own thing.         
+      
+**🎥 Movie:** A Story of Derry       
+**🗓️ Release Year:** 2026              
+**🍿 MPA Rating:** TV-MA            
+**⌚ Duration:** 30 Minutes   
+**💾 Genre:** Supernatural Horror    
+**📺 Where I Watched:** HBO Max     
+                    
+**📝 IMDB Description:** Hundreds of years before Pennywise, three youngsters venture into the Western Wood…where they encounter a terrifying ancient spirit. [See Letterboxd Page](https://letterboxd.com/film/a-story-of-derry/)       
+              
+**🎬 Letterboxd Review:** It provides a little more insight into setting up the barrier. It expands on one of the episodes from the show. I enjoyed this, but it felt like it didn’t add too much to the story. It was mostly seen before from the show.       
+
+We did see IT in other forms which I did think was neat. IT as a large animal was wild.        
+             
+**📼 Letterboxd Rating:** 3.4/5               
+**✨ My Rating:** 2.5 ⭐  
+
+![IT Story of Derry Poster](/assests/images/ITStoryofDerryPoster.png)     
+
+**🎞️Total Duration Watched:** 2,911 Minutes     
+
+### Bonus
+## Day 32: November 1st    
+**🎥 Movie:** Jaws       
+**🗓️ Release Year:** 1975               
+**🍿 MPA Rating:** PG            
+**⌚ Duration:** 124 Minutes    
+**💾 Genre:** Monster Horror Action Thriller     
+**📺 Where I Watched:** Netflix     
+                    
+**📝 IMDB Description:** When a massive killer shark unleashes chaos on a beach community off Long Island, it's up to the local police chief, a marine biologist, and an old seafarer to hunt the beast down. [See Full IMDB Page](https://www.imdb.com/title/tt0073195/?ref_=fn_t_1)       
+              
+**🎬 Letterboxd Review:** I enjoyed this. This is the OG shark film. It was a little long in my opinion, but that’s alright. I really liked the chief of police and the shark expert. I felt like Chief Brody had a pretty supportive family. The theme is excellent.     
+
+“Is your husband home? I’d like to talk to him.”      
+“I would too.”       
+
+“I won’t take this abuse much longer.”      
+
+“Slow ahead. I can go slow ahead. Come on down and chum some of this shit.”      
+
+“You’re gonna need a bigger boat.”            
+             
+**📼 Letterboxd Rating:** 3.9/5               
+**🥤 IMDB Rating:** 8.1/10      
+**✨ My Rating:** 4 ⭐  
+
+!["You're gonna need a bigger boat."](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExMXBvZ3k1N3l0azA1aXVvdjk0ZXM0Mnl3a3phbjM5eHd0a2ZwOWM5aCZlcD12MV9naWZzX3NlYXJjaCZjdD1n/aq6wETurhpbc4/giphy.gif)           
+
+**🎞️Total Duration Watched:** 3,035 Minutes     
 
 ----   
 Thanks for reading, and I'd love to hear your thoughts and suggestions for films to watch this month!       
