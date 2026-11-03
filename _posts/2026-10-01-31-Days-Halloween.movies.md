@@ -1235,13 +1235,13 @@ We did see IT in other forms which I did think was neat. IT as a large animal wa
 
 **✨Total Ratings for Movies:**     
 - 0.5 ⭐ -- 📼                  
-- 2 ⭐ -- 📼📼📼      
+- 2   ⭐ -- 📼📼📼      
 - 2.5 ⭐ -- 📼📼📼      
-- 3 ⭐ -- 📼📼📼📼📼📼📼      
+- 3   ⭐ -- 📼📼📼📼📼📼📼      
 - 3.5 ⭐ -- 📼📼📼📼📼📼📼📼      
-- 4 ⭐ -- 📼📼📼📼📼          
+- 4   ⭐ -- 📼📼📼📼📼          
 - 4.5 ⭐ -- 📼📼       
-- 5 ⭐ -- 📼📼📼      
+- 5   ⭐ -- 📼📼📼      
 
 ![Rhett saying "This is totally normal" while being upside down](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExZWthZ3A3OTk3cHExMXR3d2x3dndzdDRiOXV5MThtcGk3djdwd252YiZlcD12MV9naWZzX3NlYXJjaCZjdD1n/42AGxbp0gpPvmCD6TJ/giphy.gif)     
 
