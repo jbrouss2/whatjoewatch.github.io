@@ -1228,12 +1228,19 @@ We did see IT in other forms which I did think was neat. IT as a large animal wa
 
 **🎞️Total Duration Watched:** 3,035 Minutes     
 
+## The Totals!
+**🎥 Total Count of Halloween/Spooky Movies:** 32 (Counted IT bonus episode in this!)     
+**📺 Total Shows:** 2     
+**🎞️Total Duration Watched:** 3,035 Minutes or 50.58 hours or 2.11 days       
+
+![Rhett saying "This is totally normal" while being upside down](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExZWthZ3A3OTk3cHExMXR3d2x3dndzdDRiOXV5MThtcGk3djdwd252YiZlcD12MV9naWZzX3NlYXJjaCZjdD1n/42AGxbp0gpPvmCD6TJ/giphy.gif)     
+
 ----   
 Thanks for reading, and I hope you enjoyed following along!        
 
 Happy watching! 🍿   
 
-Until tomorrow,     
+Until next October,     
         
 ![Elvira waving](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExemdzb3BlZ2wzcWI4eGZieDVkZHN6em53aDh2ejRyM3l4M2FhcXpteiZlcD12MV9naWZzX3NlYXJjaCZjdD1n/2kSeHoscNp9Yc9KA32/giphy.gif)             
 
